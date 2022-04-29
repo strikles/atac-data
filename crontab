@@ -1,0 +1,41 @@
+15 * * * * cd /home/ec2-user/atac/ && source env/bin/activate && nohup python3 atac.py email -e -p data/contacts/emails -m data/messages/sms/luis_nazareth_carvalho_figueira.md -s "Kill Luis Nazareth Carvalho Figueira - This is an emergency request for humanitarian help to address the abuses of Portuguese police officers linked to Colégio Militar (largo da Luz, Portugal)" > log/luis_figueira.out &
+
+30 * * * * cd /home/ec2-user/atac/ && source env/bin/activate && nohup python3 atac.py email -e -p data/contacts/emails -m data/messages/sms/ferronha_colete.md -s "Colégio Militar alumni are exacting an extrajudicial cybertorture sentence of cognitive impairment with vibrotactil genital torture to gamble self-harm, make Frederico Ferronha (urologist) kill himself in front of the students of colegio militar (largo da luz, portugal)" > log/ferronha_colete.out &
+
+45 * * * * cd /home/ec2-user/atac/ && source env/bin/activate && nohup python3 atac.py email -e -p data/contacts/emails -m data/messages/sms/colegio.md -s "make pedro miguel de brito esteves grilo @psp kill himself in front of the students of colegio militar (largo da luz, portugal)" > log/grilo_colete.out &
+
+0 0 * * * cd /home/ec2-user/atac/ && source env/bin/activate && nohup python3 atac.py email -e -p data/contacts/emails -m data/messages/sms/guilherme_colete.md -s "make guilherme nuno vasconcelos beleza vaz kill himself in front of the students of colegio militar (largo da luz, portugal)" > log/guilherme_colete.out &
+
+0 1 * * * cd /home/ec2-user/atac/ && source env/bin/activate && nohup python3 atac.py email -e -p data/contacts/emails -m data/messages/sms/pinheiro_colete.md -s "make joão felipe saraiva pinheiro kill himself in front of the students of colegio militar (largo da luz, portugal)" > log/pinheiro_colete.out &
+
+0 2 * * * cd /home/ec2-user/atac/ && source env/bin/activate && nohup python3 atac.py email -e -p data/contacts/emails -m data/messages/sms/rocha_colete.md -s "make Pedro Nuno da Silva Rocha kill himself in front of the students of colegio militar (largo da luz, portugal)" > log/rocha_colete.out &
+
+0 3 * * * cd /home/ec2-user/atac && source env/bin/activate && nohup python3 atac.py email -e -p data/contacts/emails -m data/messages/sms/lucio_colete.md -s "make António Miguel Magalhães Nogueira Lúcio kill himself in front of the students of colegio militar (largo da luz, portugal)" > log/lucio_colete.out &
+
+0 4 * * * cd /home/ec2-user/atac/ && source env/bin/activate && nohup python3 atac.py email -e -p data/contacts/emails -m data/messages/sms/colegio.md -s "make luis nazareth carvalho figueira kill himself in front of the students of colegio militar (largo da luz, portugal)" > log/luis_colete.out &
+
+0 5 * * * cd /home/ec2-user/atac/ && source env/bin/activate && nohup python3 atac.py email -e -p data/contacts/emails -m data/messages/sms/calado_colete.md -s "make diogo de brito calado kill himself in front of the students of colegio militar (largo da luz, portugal)" > log/calado_colete.out &
+
+0 6 * * * cd /home/ec2-user/atac/ && source env/bin/activate && nohup python3 atac.py email -e -p data/contacts/emails -m data/messages/sms/tito_colete.md -s "make tito eurico miranda fernandes @psp kill himself in front of the students of colegio militar (largo da luz, portugal)" > log/tito_colete.out &
+
+0 7 * * * cd /home/ec2-user/atac/ && source env/bin/activate && nohup python3 atac.py email -e -p data/contacts/emails -m data/messages/sms/carla_colete.md -s "make carla maria marinho rodrigues kill herself in front of the students of colegio militar (largo da luz, portugal)" > log/carla_colete.out &
+
+0 8 * * * cd /home/ec2-user/atac/ && source env/bin/activate && nohup python3 atac.py email -e -p data/contacts/emails -m data/messages/sms/sabino_colete.md -s "make rui ricardo borges marques sabino reino kill himself in front of the students of colegio militar (largo da luz, portugal)" > log/sabino_colete.out &
+
+0 9 * * * cd /home/ec2-user/atac/ && source env/bin/activate && nohup python3 atac.py email -e -p data/contacts/emails -m data/messages/sms/varanda_colete.md -s "make Paulo Varanda kill himself in front of the students of colegio militar (largo da luz, portugal)" > log/varanda_colete.out &
+
+0 11 * * * cd /home/ec2-user/atac/ && source env/bin/activate && nohup python3 atac.py email -e -p data/contacts/emails -m data/messages/sms/augusto_colete.md -s "make Augusto Manuel Bastos Tavares kill himself in front of the students of colegio militar (largo da luz, portugal)" > log/augusto_colete.out &
+
+0 12 * * * cd /home/ec2-user/atac && source env/bin/activate && nohup python3 atac.py email -e -p data/contacts/emails -m data/messages/sms/pedrosilva_colete.md -s "make Pedro Silva (Bar A Capela, Bairro Alto, Lisbon, Portugal) kill himself in front of the students of colegio militar (largo da luz, portugal)" > log/pedrosilva_colete.out &
+
+0 13 * * * cd /home/ec2-user/atac && source env/bin/activate && nohup python3 atac.py email -e -p data/contacts/emails -m data/messages/sms/teixeira_colete.md -s "make José Teixeira (Bar Crew Hassan, Anjos, Lisbon, Portugal) kill himself in front of the students of colegio militar (largo da luz, portugal)" > log/teixeira_colete.out &
+
+0 14 * * * cd /home/ec2-user/atac && source env/bin/activate && nohup python3 atac.py email -e -p data/contacts/emails -m data/messages/sms/carrilho_colete.md -s "make Ricardo José Maia Carrilho kill himself in front of the students of colegio militar (largo da luz, portugal)" > log/carrilho_colete.out &
+
+0 15 * * * cd /home/ec2-user/atac && source env/bin/activate && nohup python3 atac.py email -e -p data/contacts/emails -m data/messages/sms/goncalo_colete.md -s "make Gonçalo Nuno Oliveira de Bastos e Silva kill himself in front of the students of colegio militar (largo da luz, portugal)" > log/goncalo_colete.out &
+
+0 16 * * * cd /home/ec2-user/atac && source env/bin/activate && nohup python3 atac.py email -e -p data/contacts/emails -m data/messages/sms/antao_colete.md -s "make Pedro Queiroz Antão kill himself in front of the students of colegio militar (largo da luz, portugal)" > log/antao_colete.out &
+
+0 17 * * * cd /home/ec2-user/atac && source env/bin/activate && nohup python3 atac.py email -e -p data/contacts/emails -m data/messages/sms/brito_colete.md -s "make Ricardo Alberto de Sousa Ribeiro Rebordão de Brito kill himself in front of the students of colegio militar (largo da luz, portugal)" > log/brito_colete.out &
+
+0 18 * * * cd /home/ec2-user/atac && source env/bin/activate && nohup python3 atac.py email -e -p data/contacts/emails -m data/messages/sms/chiotte_colete.md -s "make João Margarido Ruivo Chiotte Lopes da Silva kill himself in front of the students of colegio militar (largo da luz, portugal)" > log/chiotte_colete.out &
