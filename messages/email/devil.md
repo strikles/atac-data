@@ -36,5 +36,5 @@ Governments worldwide deny us neuro-rights for idiots like Colegio Militar alumn
     <img width="25%" src="https://github.com/strikles/atac-data/raw/main/assets/img/collaborationists/PT/CM/baleia.png">
 </p>
 
-Neuro Rights YES
-Cybertorture and Blue Whale Suicide Games Covered Up with Psychiatric Fraud NO.
+- Neuro Rights YES
+- Cybertorture and Blue Whale Suicide Games Covered Up with Psychiatric Fraud NO.
