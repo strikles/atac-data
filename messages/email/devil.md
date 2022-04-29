@@ -1,29 +1,26 @@
 <p align="center" width="100%">
-    <img width="32%" src="https://github.com/strikles/atac-data/raw/main/assets/img/colegio.png">
+    <img width="32%" src="https://github.com/strikles/atac-data/raw/main/assets/img/jesus/jesus_king.png">
 </p>
 
 Dear Sir/Madam
+
+Colegio Militar alumni and criminal associates of Jasper Kums and Mila Jansen (Arthur Moreno, Luis Muskiado, Tania Borboleta, Jose Teixeira among many others) wake me up every day in the middle of the night trying to force me to break everything I have and stab myself in the head and genitalia and cut off the ears for making the school look bad during extrajudicial judgments and exacted sentences since 1993 by abusing biophotonics in a manner similar to the soviet style murder of Mathew Puncher.
 
 <p align="center" width="100%">
     <img width="32%" src="https://github.com/strikles/atac-data/raw/main/assets/img/collaborationists/NL/Jasper%20Kums.png">
 </p>
 
-Colegio Militar alumni and criminal associates of Jasper Kums and Mila Jansen (Arthur Moreno, Luis Muskiado, Tania Borboleta, Jose Teixeira among many others) wake me up every day in the middle of the night trying to force me to break everything I have and stab myself in the head and genitalia and cut off the ears for making the school look bad during extrajudicial judgments and exacted sentences since 1993 by abusing biophotonics in a manner similar to the soviet style murder of Mathew Puncher.
+These Colegio Militar alumni are linked to the sounds of Martiano Nuno Gonçalves, Pedro de Queiroz Antão, Ricardo Carrilho, Ricardo Rebordão de Brito, Rui Ricardo Borges Marques Sabino Reino, Luis Nazareth Carvalho Figueira, Rui Gonçalo Pires Pintado, João Filipe Saraiva Pinheiro , [**Pedro Miguel de Brito Esteves Grilo**](https://pt.linkedin.com/in/pedro-grilo-8760013b) (427 at Colégio Militar) and João Pinheiro (277 at Colégio Militar) and respective families and social groups! @PSP, Tito Eurico Miranda Fernandes @PSP . Others were recruited by Jardim Adamastor in Lisbon and Bairro Alto (bar A Capela, Mahjong bar and bar Suave).
 
 <p align="center" width="100%">
     <img width="32%" src="https://github.com/strikles/atac-data/raw/main/assets/img/collaborationists/PT/CM/Pedro%20Grilo.png">
     <img width="32%" src="https://github.com/strikles/atac-data/raw/main/assets/img/collaborationists/PT/CM/pinheiro.png">
 </p>
 
-These Colegio Militar alumni are linked to the sounds of Martiano Nuno Gonçalves, Pedro de Queiroz Antão, Ricardo Carrilho, Ricardo Rebordão de Brito, Rui Ricardo Borges Marques Sabino Reino, Luis Nazareth Carvalho Figueira, Rui Gonçalo Pires Pintado, João Filipe Saraiva Pinheiro , [**Pedro Miguel de Brito Esteves Grilo**](https://pt.linkedin.com/in/pedro-grilo-8760013b) (427 at Colégio Militar) and João Pinheiro (277 at Colégio Militar) and respective families and social groups! @PSP, Tito Eurico Miranda Fernandes @PSP . Others were recruited by Jardim Adamastor in Lisbon and Bairro Alto (bar A Capela, Mahjong bar and bar Suave).
-
-<p align="center" width="100%">
-    <img width="32%" src="https://github.com/strikles/atac-data/raw/main/assets/img/collaborationists/PT/CM/Paulo%20Varanda.png">
-</p>
-
 Some Colegio Militar alumni are linked to Paulo Jorge Varanda (former member of the United Nations peace keeping forces) are having fun trying to force me to mutilate my ears in single file every day, for several years, several times a second to simulate Van Gogh syndrome for having run away to Holland. Some of these former students are famous music stars you may know - Pedro Aires de Magalhães, Manuel João Vieira and Adolfo Luxúria Canibal.
 
 <p align="center" width="100%">
+    <img width="32%" src="https://github.com/strikles/atac-data/raw/main/assets/img/collaborationists/PT/CM/Paulo%20Varanda.png">
     <img width="32%" src="https://github.com/strikles/atac-data/raw/main/assets/img/collaborationists/PT/CM/mjv.png">
 </p>
 
