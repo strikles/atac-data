@@ -23,6 +23,8 @@ Some Colegio Militar alumni are linked to Paulo Jorge Varanda (former member of 
 
 > "Vai-te foder com essa conversa de merda"
 
+> "Com quem é que tu te meteste"
+
 <p align="center" width="100%">
     <img width="20%" src="https://github.com/strikles/atac-data/raw/main/assets/img/collaborationists/PT/CM/Paulo%20Varanda.png">
     <img width="20%" src="https://github.com/strikles/atac-data/raw/main/assets/img/collaborationists/PT/CM/mjv.png">
