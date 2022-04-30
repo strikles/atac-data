@@ -13,7 +13,15 @@ These Colegio Militar alumni are linked to the sounds of Martiano Nuno Gonçalve
     <img width="20%" src="https://github.com/strikles/atac-data/raw/main/assets/img/collaborationists/PT/CM/pinheiro.png">
 </p>
 
-Some Colegio Militar alumni are linked to Paulo Jorge Varanda (former member of the United Nations peace keeping forces) are having fun trying to force me to mutilate my ears in single file every day, for several years, several times a second to simulate Van Gogh syndrome for having run away to Holland. Some of these former students are famous music stars you may know - Pedro Aires de Magalhães, Manuel João Vieira and Adolfo Luxúria Canibal.
+Some Colegio Militar alumni are linked to Paulo Jorge Varanda (former member of the United Nations peace keeping forces) are having fun trying to force me to mutilate my ears in single file every day, for several years, several times a second to simulate Van Gogh syndrome for having run away to Holland. Some of these former students are famous music stars you may know - Pedro Aires de Magalhães, Manuel João Vieira and Adolfo Luxúria Canibal. They spend every day inside a room taking turns at trying to get me to stab my head and genitalia in an alternate fashion whilst repeating the phrases, whilst engaging in orgies and greeting each others as if it was a normal social event:
+
+> "Desisto"
+
+> "Estás a ver o que a casa gasta"
+
+> "Não gostámos dele"
+
+> "Vai-te foder com essa conversa de merda"
 
 <p align="center" width="100%">
     <img width="20%" src="https://github.com/strikles/atac-data/raw/main/assets/img/collaborationists/PT/CM/Paulo%20Varanda.png">
