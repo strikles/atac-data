@@ -14,6 +14,6 @@ They act via recruited criminal associates like Carla Maria Marinho Rodrigues, A
 
 These individuals are connected to colégio Militar alumni, ellected government officials and law enforcement, and sadly until Neuro Rights legislation is passed you will continue seeing more and more homeless people talking to themselves and scenes of domestic violence on your TV's with multiple families and their loved ones being destroyed sadistics rituals of ostentating control over the physiology of others against their will via abuse of biophotonics, thermoacoustics abnd thermoacoustics to execute cybertorture.
 
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/assets/img/jesus/resurrection.png"></p>
+<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/assets/img/jesus/jesus_cross.png"></p>
 
 Multiple others are involved as psychopaths who entertain themselves forcing their victims to feel sexually abused and sodomized whilst delivering putrid vibrotactile payloads of "kisses of death" to the skull of their victims as they try to force them to commit suicide by forcing them to hurt themselves repeateadly, like poets of death and human degradation.
