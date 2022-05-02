@@ -2,17 +2,17 @@ Dear Sir/Madam
 
 Colegio Militar alumni and criminal associates of Jasper Kums and Mila Jansen (Arthur Moreno, Luis Muskiado, Tania Borboleta, Jose Teixeira among many others) wake me up every day in the middle of the night trying to force me to break everything I have and stab myself in the head and genitalia and cut off the ears for making the school look bad during extrajudicial judgments and sentences since 1993 by abusing biophotonics in a manner similar to the soviet style murder of Mathew Puncher.
 
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/assets/img/tongue_articulators/NL/Jasper%20Kums.png"></p>
+<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/assets/img/Jasper%20Kums.png"></p>
 
 These Colegio Militar alumni are linked to the sons of Martiano Nuno Gonçalves, Pedro de Queiroz Antão, Ricardo Carrilho, Ricardo Rebordão de Brito, Rui Ricardo Borges Marques Sabino Reino, Luis Nazareth Carvalho Figueira, Rui Gonçalo Pires Pintado, João Filipe Saraiva Pinheiro , [**Pedro Miguel de Brito Esteves Grilo**](https://pt.linkedin.com/in/pedro-grilo-8760013b) (427 at Colégio Militar) and João Pinheiro (277 at Colégio Militar) and respective families and social groups! @PSP, Tito Eurico Miranda Fernandes @PSP . 
 
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/assets/img/tongue_articulators/PT/CM/rrb.png"></p>
+<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/assets/img/rrb.png"></p>
 
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/assets/img/tongue_articulators/PT/CM/luis_figueira.png"></p>
+<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/assets/img/luis_figueira.png"></p>
 
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/assets/img/tongue_articulators/PT/CM/pedro_grilo.png"></p>
+<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/assets/img/pedro_grilo.png"></p>
 
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/assets/img/tongue_articulators/PT/CM/pinheiro.png"></p>
+<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/assets/img/pinheiro.png"></p>
 
 Some Colegio Militar alumni are linked to Paulo Jorge Varanda (former member of the United Nations peace keeping forces) are having fun trying to force me to mutilate my ears in single file every day, for several years, several times a second to simulate Van Gogh syndrome for having run away to Holland. Some of these former students are famous music stars you may know - Pedro Aires de Magalhães, Manuel João Vieira and Adolfo Luxúria Canibal. They spend every day inside a room taking turns at trying to get me to stab my head and genitalia in an alternate fashion whilst repeating the phrases, whilst engaging in orgies and greeting each others as if it was a normal social event. Others were recruited at Jardim Adamastor in Lisbon and Bairro Alto to spend all day repeating phrases like parrots:
 
