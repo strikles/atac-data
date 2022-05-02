@@ -35,5 +35,3 @@ These individuals are connected to colégio Militar alumni, ellected government 
 <p align="center" width="100%"><img height="300" src="https://raw.githubusercontent.com/strikles/atac-data/main/assets/img/collaborationists/PT/Tapada_do_mocho/mazivo.png"></p>
 
 Multiple others are involved as psychopaths who entertain themselves forcing their victims to feel sexually abused and sodomized whilst delivering putrid vibrotactile payloads of "kisses of death" to the skull of their victims as they try to force them to commit suicide by forcing them to hurt themselves repeateadly, like poets of death and human degradation.
-
-
