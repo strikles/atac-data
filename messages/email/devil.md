@@ -52,7 +52,7 @@ Now they are trying to pass me as a xenophobe, rapist and a pedo in criminal ass
 
 <p align="center" width="100%"><img height="300" src="https://github.com/strikles/atac-data/raw/main/assets/img/collaborationists/PT/Others/marcelo_lima.png"></p>
 
-Governments worldwide deny us neuro-rights for idiots like Colegio Militar alumni and ther criminal associates to assemble this type of demonic circus in the form of leviathan orgies where life is gambled with vibrotactil cybertorture to generate psychosis and feelings of self-mutilation in the form of a interactive spectacle of taking urns to gamble suicide that inspires so much hatred and anger among the population and which is one of the reasons that led to the war in Ukraine.
+Governments worldwide deny us neuro-rights for idiots like Colegio Militar alumni and ther criminal associates to assemble this type of demonic circus in the form of leviathan orgies where life is gambled with vibrotactil cybertorture to generate psychosis and feelings of self-mutilation in the form of a interactive spectacle of taking turns to gamble suicide in games that inspire so much hatred and anger amongst the population and which is one of the reasons that led to the war in Ukraine.
 
 <p align="center" width="100%"><img height="300" src="https://github.com/strikles/atac-data/raw/main/assets/img/collaborationists/PT/CM/baleia.png"></p>
 
