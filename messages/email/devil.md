@@ -1,6 +1,6 @@
 Dear Sir/Madam
 
-Colegio Militar alumni and criminal associates of Jasper Kums and Mila Jansen (Arthur Moreno, Luis Muskiado, Tania Borboleta, Jose Teixeira among many others) wake me up every day in the middle of the night trying to force me to break everything I have and stab myself in the head and genitalia and cut off the ears for making the school look bad during extrajudicial judgments and exacted sentences since 1993 by abusing biophotonics in a manner similar to the soviet style murder of Mathew Puncher.
+Colegio Militar alumni and criminal associates of Jasper Kums and Mila Jansen (Arthur Moreno, Luis Muskiado, Tania Borboleta, Jose Teixeira among many others) wake me up every day in the middle of the night trying to force me to break everything I have and stab myself in the head and genitalia and cut off the ears for making the school look bad during extrajudicial judgments and sentences since 1993 by abusing biophotonics in a manner similar to the soviet style murder of Mathew Puncher.
 
 <p align="center" width="100%"><img height="300" src="https://github.com/strikles/atac-data/raw/main/assets/img/collaborationists/NL/Jasper%20Kums.png"></p>
 
