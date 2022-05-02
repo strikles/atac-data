@@ -30,6 +30,8 @@ Some Colegio Militar alumni are linked to Paulo Jorge Varanda (former member of 
 
 <p align="center" width="100%"><img height="300" src="https://github.com/strikles/atac-data/raw/main/assets/img/collaborationists/PT/CM/mjv.png"></p>
 
+<p align="center" width="100%"><img height="300" src="https://github.com/strikles/atac-data/raw/main/assets/img/collaborationists/PT/CM/alc.png"></p>
+
 I fled Portugal to avoid the blue whale suicide game being forced upon me by colegio militar alumni inducing psychosis in the physical vicinity of my parents using them as targets to direct violence against, and this group of cowards pursued me to the Netherlands to force me to return to Portugal and use my mother as a target against which to direct violence and gamble my suicide in front of her for having refused to leave military school when invited, and threatening them in 1996 with exposure in the news. 
 
 <p align="center" width="100%"><img height="300" src="https://raw.githubusercontent.com/strikles/atac-data/main/assets/img/collaborationists/PT/Tapada_do_mocho/joao_leiria.png"></p>

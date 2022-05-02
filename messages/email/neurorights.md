@@ -12,6 +12,8 @@ Individuals linked to Ricardo Rebordão de Brito, Pedro Miguel de Brito Esteves 
 
 <p align="center" width="100%"><img height="300" src="https://github.com/strikles/atac-data/raw/main/assets/img/collaborationists/PT/CM/pedro_grilo.png"></p>
 
+<p align="center" width="100%"><img height="300" src="https://github.com/strikles/atac-data/raw/main/assets/img/collaborationists/PT/CM/pinheiro.png"></p>
+
 They act via recruited criminal associates like Carla Maria Marinho Rodrigues, Arthur Moreno, Jasper Kums, Luis Muskiado, José Teixeira (bar Crew Hassan) to exact extrajudicial sentences and force me into psychiatry going as far as systematically directing violence towards women whenever I am in their physical vicinity by exacting cybertorture and cybersodomy after turning my father into a`cripple and breaking his teeth.
 
 <p align="center" width="100%"><img height="300" src="https://github.com/strikles/atac-data/raw/main/assets/img/collaborationists/PT/Others/tania.png"></p>
