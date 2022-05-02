@@ -4,7 +4,7 @@ Colegio Militar alumni and criminal associates of Jasper Kums and Mila Jansen (A
 
 <p align="center" width="100%"><img height="300" src="https://raw.githubusercontent.com/strikles/atac-data/main/assets/img/collaborationists/NL/Jasper%20Kums.png"></p>
 
-These Colegio Militar alumni are linked to the sounds of Martiano Nuno Gonçalves, Pedro de Queiroz Antão, Ricardo Carrilho, Ricardo Rebordão de Brito, Rui Ricardo Borges Marques Sabino Reino, Luis Nazareth Carvalho Figueira, Rui Gonçalo Pires Pintado, João Filipe Saraiva Pinheiro , [**Pedro Miguel de Brito Esteves Grilo**](https://pt.linkedin.com/in/pedro-grilo-8760013b) (427 at Colégio Militar) and João Pinheiro (277 at Colégio Militar) and respective families and social groups! @PSP, Tito Eurico Miranda Fernandes @PSP . 
+These Colegio Militar alumni are linked to the sons of Martiano Nuno Gonçalves, Pedro de Queiroz Antão, Ricardo Carrilho, Ricardo Rebordão de Brito, Rui Ricardo Borges Marques Sabino Reino, Luis Nazareth Carvalho Figueira, Rui Gonçalo Pires Pintado, João Filipe Saraiva Pinheiro , [**Pedro Miguel de Brito Esteves Grilo**](https://pt.linkedin.com/in/pedro-grilo-8760013b) (427 at Colégio Militar) and João Pinheiro (277 at Colégio Militar) and respective families and social groups! @PSP, Tito Eurico Miranda Fernandes @PSP . 
 
 <p align="center" width="100%"><img height="300" src="https://raw.githubusercontent.com/strikles/atac-data/main/assets/img/collaborationists/PT/CM/rrb.png"></p>
 
