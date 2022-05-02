@@ -22,33 +22,19 @@ Some Colegio Militar alumni are linked to Paulo Jorge Varanda (former member of 
 4. "Vai-te foder com essa conversa de merda"
 5. "Com quem é que tu te meteste"
 
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/assets/img/tongue_articulators/PT/CM/mjv.png"></p>
-
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/assets/img/tongue_articulators/PT/CM/alc.png"></p>
+<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/assets/img/jesus/golgota.png"></p>
 
 I fled Portugal to avoid the blue whale suicide game being forced upon me by colegio militar alumni inducing psychosis in the physical vicinity of my parents using them as targets to direct violence against, and this group of cowards pursued me to the Netherlands to force me to return to Portugal and use my mother as a target against which to direct violence and gamble my suicide in front of her for having refused to leave military school when invited, and threatening them in 1996 with exposure in the news. 
 
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/assets/img/tongue_articulators/PT/Tapada_do_mocho/joao_leiria.png"></p>
-
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/assets/img/tongue_articulators/PT/Tapada_do_mocho/tiago_roque.png"></p>
-
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/assets/img/tongue_articulators/PT/Tapada_do_mocho/goncalo_duarte.png"></p>
-
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/assets/img/tongue_articulators/PT/Tapada_do_mocho/mazivo.png"></p>
+<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/assets/img/jesus/jesus_carrying_cross.png"></p>
 
 Now they are trying to pass me as a xenophobe, rapist and a pedo in criminal association with Netherlands law enforcement and criminal associates of Jasper Kums with extrajudicial cybertorture trials and sentences all day since the summer of 2016.
 
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/assets/img/tongue_articulators/PT/Others/tania.png"></p>
-
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/assets/img/tongue_articulators/PT/CM/muskiado.png"></p>
-
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/assets/img/tongue_articulators/PT/Others/joel.png"></p>
-
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/assets/img/tongue_articulators/PT/Others/marcelo_lima.png"></p>
+<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/assets/img/jesus/holy_spirit.png"></p>
 
 Governments worldwide deny us neurorights for idiots like Colegio Militar alumni and ther criminal associates to assemble this type of demonic circus in the form of leviathan orgies where life is gambled with vibrotactil cybertorture to generate psychosis and feelings of self-mutilation in the form of a interactive spectacle of taking turns to gamble suicide in games that inspire so much hatred and anger amongst the population and which is one of the reasons that led to the war in Ukraine.
 
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/assets/img/tongue_articulators/PT/CM/baleia.png"></p>
+<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/assets/img/jesus/adam_tree_of_life.png"></p>
 
 - Neuro Rights YES
 - Cybertorture and Blue Whale Suicide Games Covered Up with Psychiatric Fraud NO.
