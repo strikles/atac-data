@@ -12,8 +12,4 @@ The procedure is hidden under a veil of medical malpractice via psychiatric frau
 
 <p align="center" width="100%"><img width="25%" src="https://raw.githubusercontent.com/strikles/atac-data/main/assets/img/jesus/lamb_of_god.png"></p>
 
-Here follows some of my cybertorture and psychiatric abuse story
-
-[https://strikles.github.io](strikles.github.io)
-
 My sincere appologies!
