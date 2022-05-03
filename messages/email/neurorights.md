@@ -13,13 +13,15 @@ those abusing <span translate="no">biophotonics</span> to execute extrajudicial 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/assets/img/jesus/jesus_lamb.png"></p>
 
 
-several <span translate="no">colégio militar</span> (largo da luz, lisbon, portugal) former students linked to portuguese law enforcement are sitting in a room everyday, taking turns at forcing people to talk to themselves, hurt themselves, turning their subjects under torture (subject under torture) psychotic when near others, to use them as targets of directed violence (including elderly parents, women children and even handicapped people), creating drug addicts with synthetic pain, setting <span translate="no">cybertorture</span> and <span translate="no">cybersodomy</span> as standard extrajudicial punishment and forcing people to mutilate themselves (targeting head, anus and genitals) with relentless vibrotactile <span translate="no">cybertorture</span> to force the victim to bargain fo relief and complete tasks (including self harm).
+several <span translate="no">colégio militar</span> (largo da luz, lisbon, portugal) former students linked to portuguese law enforcement are sitting in a room everyday, taking turns at forcing people to talk to themselves, hurt themselves, trying to force synthetic psychosis onto their victims whenever they are near other people, to use them as targets of directed violence. These targets could be elderly parents at the end of their life, women,  children and even handicapped people. 
+
+They create drug addicts with synthetic pain, setting <span translate="no">cybertorture</span> and <span translate="no">cybersodomy</span> as extrajudicial punishment in order to force people to hurt themselves (head, anus and genitals) with relentless vibrotactile <span translate="no">cybertorture</span> to force the victim to bargain for relief and to complete the tasks they are issued via synthetic telepathy.
 
 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/assets/img/jesus/joseph.png"></p>
 
 
-<span translate="no">colégio militar</span> former students and criminal associates of <span translate="no">jasper kums</span> and <span translate="no">mila jansen</span>, <span translate="no">arthur moreno</span>, <span tr anslate="no">luis muskiado</span>, <span translate="no">tania borboleta</span>, <span translate="no">josé teixeira</span> among many others) wake me up every day in the middle of the night trying to force me to break everything I own, gambling self harm of ears, head and genitals by abusing <span translate="no">biophotonics</span> in a manner similar to the soviet style murder of <span translate="no">mathew puncher</span>.
+<span translate="no">colégio militar</span> former students and criminal associates of <span translate="no">jasper kums</span> and <span translate="no">mila jansen</span>, <span translate="no">arthur moreno</span>, <span translate="no">luis muskiado</span>, <span translate="no">tania borboleta</span>, <span translate="no">josé teixeira</span> among many others, wake me up every day, in the middle of the night, trying to force me to break everything I own, trying to force me to hurt myself and mutilate my ears, head and genitals by abusing <span translate="no">biophotonics</span> in a manner similar to the soviet style murder of <span translate="no">mathew puncher</span>.
 
 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/assets/img/jasper_kums.png"></p>
@@ -75,43 +77,43 @@ they spend every day inside a room taking turns at trying to get me to stab my h
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/assets/img/jesus/golgota.png"></p>
 
 
-i fled portugal to avoid the blue whale suicide game being forced upon me by <span translate="no">colégio militar</span> former students, inducing psychosis in the physical vicinity of my parents and using them as targets to direct violence against. this group of cowards pursued me to the netherlands to force me to return to portugal so they could use my mother as a target of violence and gamble my suicide in front of her for having refused to leave military school when invited, and threatening the school in 1996 with exposure in the news. 
+i fled portugal to avoid the blue whale suicide game that was forced upon me and my family by <span translate="no">colégio militar</span> former students and this group of sadistic cowards pursued me to the netherlands, trying to force me to return to portugal, so they could use my mother as a target of violence and gamble my suicide in front of her for having refused to leave <span translate="no">colégio militar</span> and threatening exposure of the events in the news in 1996.
 
 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/assets/img/jesus/jesus_carrying_cross.png"></p>
 
 
-for quite some time now, they have been trying to portrait me as a homophobe, xenophobe, rapist and even a pedophile in criminal association with netherlands law enforcement and criminal associates of <span translate="no">jasper kums</span>, with extrajudicial cyber torture trials and punishment, all day, since the summer of 2016.
+they have been trying to portrait me as a homophobe, a xenophobe, a rapist and even a pedophile in criminal association with netherlands law enforcement and criminal associates of <span translate="no">jasper kums</span>, with extrajudicial punishment, all day since the summer of 2016.
 
 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/assets/img/jesus/jesus_cross.png"></p>
 
 
-multiple of the recruited sadists entertain themselves forcing their victims to feel sexually abused and sodomized, whilst delivering putrid vibrotactile payloads of "kisses of death" to the skull of their victims as they try to force them to commit suicide or hurt themselves repeatedly, like poets of death and human degradation.
+multiple of the recruited sadists entertain themselves forcing their victims to feel sexually abused and sodomized, whilst delivering putrid vibrotactile payloads of "kisses of death" to the head of their victims, as they try to force them to hurt themselves repeatedly, like poets of death and human degradation.
 
 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/assets/img/jesus/holy_spirit.png"></p>
 
 
-they have been enabled to destroy their victims and respective households, targeting family members, remotely breaking teeth like cowards and forcing the whole family to feel sexually abused by abusing _bio_photonics_ to force their victims into submission, generating human degradation content in the format of a closed circuit interactive spectacle, encouraging participation, taking turns executing extrajudicial cyber torture trials and punishment to simulate mental illness.
+they were enabled to destroy their victims and respective households, with family members of the victims also being targeted and having their teeth broken remotely by cowards cowards. they will force the whole family of their victims to feel sexually abused (if need be) by abusing <span translate="no">biophotonics</span> in order to force their victims into submission, and generate human degradation content for a closed circuit interactive spectacle, encouraging participation, so the players take turns executing extrajudicial <span translate="no">cybertorture</span> punishment to simulate mental illness.
 
 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/assets/img/jesus/monk.png"></p>
 
 
-they act via recruited criminal associates like <span translate="no">carla maria marinho rodrigues</span>, <span translate="no">arthur moreno</span>, <span translate="no">jasper kums</span>, <span translate="no">luis muskiado</span>, <span translate="no">josé teixeira</span> (<span translate="no">bar crew hassan</span> to execute their extrajudicial punishment in an attempt to coerce me into psychiatry, going as far as systematically directing violence towards women (when physically near them) by executing cyber torture and cyber sodomy, after they turned my father into an invalid and broke his teeth.
+they act via recruited criminal associates like <span translate="no">carla maria marinho rodrigues</span>, <span translate="no">arthur moreno</span>, <span translate="no">jasper kums</span>, <span translate="no">luis muskiado</span>, <span translate="no">josé teixeira (bar crew hassan)</span> to execute their extrajudicial punishment, in an attempt to coerce me into psychiatry, going as far as systematically directing violence towards people who are physically near me.
 
 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/assets/img/jesus/resurrection.png"></p>
 
 
-the procedure is hidden with medical malpractice via psychiatric fraud (violating every principle in the code of ethics set by the <span translate="no">world psychiatry association</span>), false therapy (in the form of forced conventional pharmacotherapy, with a high risk of suicide) when it could be used to provide therapy, raising feelings of paranoia towards <span translate="no">biophotonics</span>, remote healthcare, neural engineering and bioelectric medicine, where the risk of suicide would be negligible!
+the procedure is hidden with medical malpractice via psychiatric fraud and false therapy (in the form of forced conventional pharmacotherapy, with a high risk of suicide) when the same medium could be used to provide real therapy. Instead they raise feelings of paranoia towards <span translate="no">biophotonics</span>, remote healthcare, neural engineering and bioelectric medicine (where the risk of suicide would be negligible).
 
 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/assets/img/jesus/lamb_of_god.png"></p>
 
 
-governments worldwide are denying us <span translate="no">neurorights</span> whilst a synthetic hell on hearth is created as a demonic circus, where life is gambled with vibrotactile cyber torture to induce synthetic psychosis and feelings of self harm in a interactive spectacle, where participants take turns to gamble the suicide of their victims, in games that inspire so much hatred and anger amongst the population and which is are of the reasons that led to war in ukraine.
+governments worldwide are denying us <span translate="no">neurorights</span>, whilst a synthetic hell on hearth is created as a demonic circus, where life is gambled with vibrotactile <span translate="no">cybertorture</span> to induce synthetic psychosis and feelings of self harm in a interactive spectacle, where participants take turns to gamble the suicide of their victims, in games that inspire so much hatred and anger amongst the population and which is are of the reasons that led to war in ukraine.
 
 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/assets/img/jesus/adam_tree_of_life.png"></p>
