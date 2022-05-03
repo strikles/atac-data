@@ -1,7 +1,7 @@
 dear sir/madam
 
 
-cyber torture "__cybertorture__" is recognized by the united_nations under __A/HRC/43/49__ and is used in grotesque rituals of social stratification for extrajudicial trials and sentences as an interactive spectacle encouraging participation, mongering tensions and hatred by preying on cognitive biases.
+cyber torture "__cyber_torture__" is recognized by the united_nations under __A/HRC/43/49__ and is used in grotesque rituals of social stratification for extrajudicial trials and sentences as an interactive spectacle encouraging participation, mongering tensions and hatred by preying on cognitive biases.
 
 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/assets/img/jesus/golgota.png"></p>
@@ -13,7 +13,7 @@ those abusing __biophotonics__ to execute extrajudicial sentences resort to dire
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/assets/img/jesus/jesus_lamb.png"></p>
 
 
-several __colégio_militar__ alumni (largo da luz, lisbon, portugal) linked to portuguese law enforcement are sitting in a room everyday, taking turns at forcing people to talk to themselves, hurt themselves, turning their subjects under torture (subject under torture) psychotic when near others, to use them as targets of directed violence (including elderly parents, women children and even handicapped people), creating drug addicts with synthetic pain, setting __cybertorture__ and __cybersodomy__ as standard extrajudicial sentences and forcing people to mutilate themselves (targeting head, anus and genitals) with relentless vibrotactile __cybertorture__ to force the subject under torture to bargain fo relief and complete tasks (including self harm).
+several __colégio_militar__ alumni (largo da luz, lisbon, portugal) linked to portuguese law enforcement are sitting in a room everyday, taking turns at forcing people to talk to themselves, hurt themselves, turning their subjects under torture (subject under torture) psychotic when near others, to use them as targets of directed violence (including elderly parents, women children and even handicapped people), creating drug addicts with synthetic pain, setting __cyber_torture__ and __cyber_sodomy__ as standard extrajudicial sentences and forcing people to mutilate themselves (targeting head, anus and genitals) with relentless vibrotactile __cyber_torture__ to force the subject under torture to bargain fo relief and complete tasks (including self harm).
 
 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/assets/img/jesus/joseph.png"></p>
@@ -28,14 +28,14 @@ __colégio_militar__ alumni and criminal associates of __jasper_kums__ and __mil
 these individuals are connected to:
 
 
-1. __pedro_de_queiroz_antão__
-2. __ricardo_carrilho__
-3. __ricardo_rebordão_de_brito__
-4. __rui_ricardo_borges_marques_sabino_reino__
-5. __luis_nazareth_carvalho_figueira__
-6. __rui_goncalo_pires_pintado__
-7. __joão_filipe_saraiva_pinheiro__ (277 at __colégio_militar__)
-8. __pedro_miguel_de_brito_esteves_grilo__ (427 at __colégio_militar__)
+1. "__pedro_de_queiroz_antão__"
+2. "__ricardo_carrilho__"
+3. "__ricardo_rebordão_de_brito__"
+4. "__rui_ricardo_borges_marques_sabino_reino__"
+5. "__luis_nazareth_carvalho_figueira__"
+6. "__rui_goncalo_pires_pintado__"
+7. "__joão_filipe_saraiva_pinheiro__"
+8. "__pedro_miguel_de_brito_esteves_grilo__"
 
 
 and respective social groups!
@@ -53,8 +53,8 @@ and respective social groups!
 some of these former students are famous music stars you may know:
 
 
-1. __manuel_joão_vieira__
-2. __adolfo_luxúria_canibal__
+1. "__manuel_joão_vieira__"
+2. "__adolfo_luxúria_canibal__"
 
 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/assets/img/mjv.png"></p>
@@ -111,14 +111,14 @@ the procedure is hidden with medical malpractice via psychiatric fraud (violatin
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/assets/img/jesus/lamb_of_god.png"></p>
 
 
-governments worldwide are denying us __neurorights__ whilst a synthetic hell on hearth is created as a demonic circus, where life is gambled with vibrotactile cyber torture to induce synthetic psychosis and feelings of self harm in a interactive spectacle, where participants take turns to gamble the suicide of their victims, in games that inspire so much hatred and anger amongst the population and which is are of the reasons that led to war in ukraine.
+governments worldwide are denying us __neuro_rights__ whilst a synthetic hell on hearth is created as a demonic circus, where life is gambled with vibrotactile cyber torture to induce synthetic psychosis and feelings of self harm in a interactive spectacle, where participants take turns to gamble the suicide of their victims, in games that inspire so much hatred and anger amongst the population and which is are of the reasons that led to war in ukraine.
 
 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/assets/img/jesus/adam_tree_of_life.png"></p>
 
 
-until __neurorights__ legislation is passed, it is likely you will continue seeing more and more homeless people talking to themselves, scenes of domestic violence on your television screens with multiple families being destroyed in sadistic rituals of ostentation of control over the physiology of others against their will via abuse of __biophotonics__, __photoacoustics__ and __thermoacoustics__ to execute __cybertorture__.
+until __neuro_rights__ legislation is passed, it is likely you will continue seeing more and more homeless people talking to themselves, scenes of domestic violence on your television screens with multiple families being destroyed in sadistic rituals of ostentation of control over the physiology of others against their will via abuse of __biophotonics__, __photoacoustics__ and __thermoacoustics__ to execute __cyber_torture__.
 
 
-1. say yes to __neurorights__
-2. say no to __cybertorture__ and __blue_whale__ suicide games covered up with psychiatric fraud
+1. say yes to __neuro_rights__
+2. say no to __cyber_torture__ and __blue_whale__ suicide games covered up with psychiatric fraud
