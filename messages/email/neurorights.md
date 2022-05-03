@@ -66,10 +66,10 @@ they spend every day inside a room taking turns at trying to get me to stab my h
 
 
 1. "__desisto__"
-2. "__estás_a_ver_o_que_a_casa_gasta__"
-3. "__não_gostámos_dele__"
+2. "__estas_a_ver_o_que_a_casa_gasta__"
+3. "__nao_gostamos_dele__"
 4. "__vai-te_foder_com_essa_conversa_de_merda__"
-5. "__com_quem_é_que_tu_te_meteste__"
+5. "__com_quem_te_meteste__"
 
 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/assets/img/jesus/golgota.png"></p>
