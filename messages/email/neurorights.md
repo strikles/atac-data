@@ -29,13 +29,13 @@ these individuals are connected to:
 
 
 1. <span translate="no">pedro de queiroz antão</span>
-2. <span translate="no">ricardo_carrilho</span>
-3. <span translate="no">ricardo_rebordão_de_brito</span>
-4. <span translate="no">rui_ricardo_borges_marques_sabino_reino</span>
-5. <span translate="no">luis_nazareth_carvalho_figueira</span>
-6. <span translate="no">rui_goncalo_pires_pintado</span>
-7. <span translate="no">joão_filipe_saraiva_pinheiro</span>
-8. <span translate="no">pedro_miguel_de_brito_esteves_grilo</span>
+2. <span translate="no">ricardo carrilho</span>
+3. <span translate="no">ricardo rebordão de brito</span>
+4. <span translate="no">rui ricardo borges marques sabino reino</span>
+5. <span translate="no">luis nazareth carvalho figueira</span>
+6. <span translate="no">rui goncalo pires pintado</span>
+7. <span translate="no">joão filipe saraiva pinheiro</span>
+8. <span translate="no">pedro miguel de brito esteves grilo</span>
 
 
 and respective social groups!
@@ -62,7 +62,7 @@ some of these former students are famous music stars you may know:
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/assets/img/alc.png"></p>
 
 
-they spend every day inside a room taking turns at trying to get me to stab my head and genitalia in an alternate fashion whilst repeating the phrases, whilst engaging in orgies and greeting each others as if it was a normal social event. Others were recruited at <span translate="no">jardim adamastor</span> in lisbon and <span translate="no">bairro_alto</span> to spend all day repeating phrases like parrots:
+they spend every day inside a room taking turns at trying to get me to stab my head and genitalia in an alternate fashion whilst repeating the phrases, whilst engaging in orgies and greeting each others as if it was a normal social event. Others were recruited at <span translate="no">jardim adamastor</span> in lisbon and <span translate="no">bairro alto</span> to spend all day repeating phrases like parrots:
 
 
 1. <span translate="no">desisto</span>
