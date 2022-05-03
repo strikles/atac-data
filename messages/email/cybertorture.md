@@ -8,8 +8,8 @@ Those executing the extrajudicial sentences resort to directing violence towards
 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/assets/img/jesus/jesus_lamb.png"></p>
 
-The procedure is hidden under a veil of medical malpractice via psychiatric fraud (violating every principle in the code of ethics set by the World Psychiatry Association), false therapy in the form of forced conventional pharmacotherapy (with an associated high risk of suicide) when it could be used to provide therapeutic payloads via the same medium, raising feelings of paranoia towards bio photonics, remote healthcare, neural engineering and electroceuticals where the risk of suicide would be nearly zero!
+The procedure is hidden under a veil of medical malpractice via psychiatric fraud (violating every principle in the code of ethics set by the World Psychiatry Association), false therapy in the form of forced conventional pharmacotherapy (with an associated high risk of suicide) when it could be used to provide therapeutic payloads via the same medium, raising feelings of paranoia towards bio photonics, remote healthcare, neural engineering and bioelectric medicine where the risk of suicide would be negligible!
 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/assets/img/jesus/lamb_of_god.png"></p>
 
-My sincere appologies!
+My apologies!
