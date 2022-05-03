@@ -1,7 +1,7 @@
 dear sir/madam
 
 
-<span translate="no">cybertorture</span> is recognized by the united_nations under <span translate="no">A/HRC/43/49</span> and is used in grotesque rituals of executing extrajudicial punishment for the purpose of social stratification as an interactive spectacle encouraging participation with the intent of mongering tensions and hatred by preying on cognitive biases.
+<span translate="no">cybertorture</span> is recognized by the <span translate="no">united ations</span> under <span translate="no">A/HRC/43/49</span> and is used in grotesque rituals of executing extrajudicial punishment for the purpose of social stratification as an interactive spectacle encouraging participation with the intent of accumulating hatred by preying on cognitive biases of those recruited to deliver extrajudicial punishment.
 
 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/assets/img/jesus/golgota.png"></p>
