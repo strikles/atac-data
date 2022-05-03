@@ -2,7 +2,7 @@ Dear Sir/Madam
 
 Colegio Militar alumni and criminal associates of Jasper Kums and Mila Jansen (Arthur Moreno, Luis Muskiado, Tania Borboleta, Jose Teixeira among many others) wake me up every day in the middle of the night trying to force me to break everything I have and stab myself in the head and genitalia and cut off the ears for making the school look bad during extrajudicial judgments and sentences since 1993 by abusing biophotonics in a manner similar to the soviet style murder of Mathew Puncher.
 
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/assets/img/Jasper%20Kums.png"></p>
+<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/assets/img/jasper_kums.png"></p>
 
 These Colegio Militar alumni are linked to the sons of Martiano Nuno Gonçalves, Pedro de Queiroz Antão, Ricardo Carrilho, Ricardo Rebordão de Brito, Rui Ricardo Borges Marques Sabino Reino, Luis Nazareth Carvalho Figueira, Rui Gonçalo Pires Pintado, João Filipe Saraiva Pinheiro , [**Pedro Miguel de Brito Esteves Grilo**](https://pt.linkedin.com/in/pedro-grilo-8760013b) (427 at Colégio Militar) and João Pinheiro (277 at Colégio Militar) and respective families and social groups! @PSP, Tito Eurico Miranda Fernandes @PSP . 
 
@@ -24,17 +24,17 @@ Some Colegio Militar alumni are linked to Paulo Jorge Varanda (former member of 
 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/assets/img/jesus/golgota.png"></p>
 
-I fled Portugal to avoid the blue whale suicide game being forced upon me by colegio militar alumni inducing psychosis in the physical vicinity of my parents using them as targets to direct violence against, and this group of cowards pursued me to the Netherlands to force me to return to Portugal and use my mother as a target against which to direct violence and gamble my suicide in front of her for having refused to leave military school when invited, and threatening them in 1996 with exposure in the news. 
+I fled Portugal to avoid the blue whale suicide game being forced upon me by colegio militar alumni, inducing psychosis in the physical vicinity of my parents and using them as targets to direct violence against. This group of cowards pursued me to the Netherlands to force me to return to Portugal so they could use my mother as a target of violence and gamble my suicide in front of her for having refused to leave military school when invited, and threatening the school in 1996 with exposure in the news. 
 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/assets/img/jesus/jesus_carrying_cross.png"></p>
 
-Now they are trying to pass me as a xenophobe, rapist and a pedo in criminal association with Netherlands law enforcement and criminal associates of Jasper Kums with extrajudicial cybertorture trials and sentences all day since the summer of 2016.
+Now they are trying to pass me as a homophobe, xenophobe, rapist and even a pedophile in criminal association with Netherlands law enforcement and criminal associates of Jasper Kums with extrajudicial cyber torture trials and sentences all day since the summer of 2016.
 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/assets/img/jesus/holy_spirit.png"></p>
 
-Governments worldwide deny us neurorights for idiots like Colegio Militar alumni and ther criminal associates to assemble this type of demonic circus in the form of leviathan orgies where life is gambled with vibrotactil cybertorture to generate psychosis and feelings of self-mutilation in the form of a interactive spectacle of taking turns to gamble suicide in games that inspire so much hatred and anger amongst the population and which is one of the reasons that led to the war in Ukraine.
+Governments worldwide deny us neurorights so that idiots like Colegio Militar alumni and criminal associates can assemble this kind of demonic circus (as leviathan orgies), where life is gambled with vibrotactil cyber torture to generate psychosis and feelings of self-harm as a interactive spectacle where participants take turns to gamble the suicide of their victims, in games that inspire so much hatred and anger amongst the population and which is one of the reasons that led to war in Ukraine.
 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/assets/img/jesus/adam_tree_of_life.png"></p>
 
-- Neuro Rights YES
-- Cybertorture and Blue Whale Suicide Games Covered Up with Psychiatric Fraud NO.
+- say yes to neurorights
+- say no to cyber torture and blue whale suicide games covered up with psychiatric fraud

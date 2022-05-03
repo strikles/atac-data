@@ -1,6 +1,6 @@
 Dear Sir/Madam
 
-Cybertorture is recognized by the United Nations under A/HRC/43/49 and is used in grotesque rituals of social stratification (by cowardly colégio militar alumni who bring the fine institution founded in 1803 to new lows and self-entitled and corrupt law enforcement officers and known criminals recruited to divert attention) for extrajudicial trials and sentences as an interactive spectacle encouraging participation, mongering tensions and hatred by preying on cognitive biases.
+cyber torture is recognized by the United Nations under A/HRC/43/49 and is used in grotesque rituals of social stratification (by cowardly colégio militar alumni who bring the fine institution founded in 1803 to new lows and self-entitled and corrupt law enforcement officers and known criminals recruited to divert attention) for extrajudicial trials and sentences as an interactive spectacle encouraging participation, mongering tensions and hatred by preying on cognitive biases.
 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/assets/img/jesus/golgota.png"></p>
 
