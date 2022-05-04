@@ -24,7 +24,7 @@ They create drug addicts with synthetic pain, setting <span translate="no">cyber
 <span translate="no">colégio militar</span> former students and criminal associates of <span translate="no">jasper kums</span> and <span translate="no">mila jansen</span>, <span translate="no">arthur moreno</span>, <span translate="no">luis muskiado</span>, <span translate="no">tania borboleta</span>, <span translate="no">josé teixeira</span> among many others, wake me up every day, in the middle of the night, trying to force me to break everything I own, trying to force me to hurt myself and mutilate my ears, head and genitals by abusing <span translate="no">biophotonics</span> in a manner similar to the soviet style murder of <span translate="no">mathew puncher</span>.
 
 
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/assets/img/jasper_kums.png"></p>
+<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/assets/img/others/jasper_kums.png"></p>
 
 
 these individuals are connected to:
@@ -43,13 +43,13 @@ these individuals are connected to:
 and respective social groups!
 
 
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/assets/img/rrb.png"></p>
+<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/assets/img/alumni/rrb.png"></p>
 
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/assets/img/luis_figueira.png"></p>
+<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/assets/img/alumni/luis_figueira.png"></p>
 
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/assets/img/pedro_grilo.png"></p>
+<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/assets/img/alumni/pedro_grilo.png"></p>
 
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/assets/img/pinheiro.png"></p>
+<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/assets/img/alumni/jfsp.png"></p>
 
 
 some of these former students are famous music stars you may know:
@@ -59,9 +59,9 @@ some of these former students are famous music stars you may know:
 2. <span translate="no">adolfo luxúria canibal</span>
 
 
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/assets/img/mjv.png"></p>
+<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/assets/img/alumni/mjv.png"></p>
 
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/assets/img/alc.png"></p>
+<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/assets/img/alumni/alc.png"></p>
 
 
 they spend every day inside a room taking turns at trying to get me to stab my head and genitalia in an alternate fashion whilst repeating the phrases, whilst engaging in orgies and greeting each others as if it was a normal social event. Others were recruited at <span translate="no">jardim adamastor</span> in lisbon and <span translate="no">bairro alto</span> to spend all day repeating phrases like parrots:
