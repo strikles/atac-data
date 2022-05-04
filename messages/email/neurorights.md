@@ -4,13 +4,13 @@ dear sir/madam
 <span translate="no">cybertorture</span> is recognized under <span translate="no">A/HRC/43/49</span> by the <span translate="no">United Nations</span> and is used in grotesque extrajudicial punishment rituals for the purpose of social stratification, as an interactive spectacle encouraging participation, with the intent of accumulating hatred, by preying on cognitive biases of those recruited to execute the extrajudicial punishment.
 
 
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/assets/img/jesus/golgota.png"></p>
+<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jesus/golgota.png"></p>
 
 
 those abusing <span translate="no">biophotonics</span> to execute extrajudicial punishment resort to directing violence towards women, parents and children, creating drug addicts with synthetic pain and risking forcing acts of self harm onto others for entertainment, whilst attempting to portray themselves as artists of human degradation, social stratification and self harm, with grotesque vibrotactile and sonic payloads of "kisses", setting synthetic pain, articulation of tongue and jaw of the victim, <span translate="no">cybersodomy</span>, sex sabotage in males (via vibrotactile torture to induce forced perineum contractions) and genital abuse in females (possibly resulting in stockholm syndrome) as being commonplace in our society!
 
 
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/assets/img/jesus/jesus_lamb.png"></p>
+<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jesus/jesus_lamb.png"></p>
 
 
 several <span translate="no">colégio militar</span> (largo da luz, lisbon, portugal) former students linked to portuguese law enforcement are sitting in a room everyday, taking turns at forcing people to talk to themselves, hurt themselves, trying to force synthetic psychosis onto their victims whenever they are near other people, to use them as targets of directed violence. These targets could be elderly parents at the end of their life, women,  children and even handicapped people. 
@@ -18,13 +18,13 @@ several <span translate="no">colégio militar</span> (largo da luz, lisbon, port
 They create drug addicts with synthetic pain, setting <span translate="no">cybertorture</span> and <span translate="no">cybersodomy</span> as extrajudicial punishment in order to force people to hurt themselves (head, anus and genitals) with relentless vibrotactile <span translate="no">cybertorture</span> to force the victim to bargain for relief and to complete the tasks they are issued via synthetic telepathy.
 
 
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/assets/img/jesus/joseph.png"></p>
+<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jesus/joseph.png"></p>
 
 
 <span translate="no">colégio militar</span> former students and criminal associates of <span translate="no">jasper kums</span> and <span translate="no">mila jansen</span>, <span translate="no">arthur moreno</span>, <span translate="no">luis muskiado</span>, <span translate="no">tania borboleta</span>, <span translate="no">josé teixeira</span> among many others, wake me up every day, in the middle of the night, trying to force me to break everything I own, trying to force me to hurt myself and mutilate my ears, head and genitals by abusing <span translate="no">biophotonics</span> in a manner similar to the soviet style murder of <span translate="no">mathew puncher</span>.
 
 
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/assets/img/others/jasper_kums.png"></p>
+<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/others/jasper_kums.png"></p>
 
 
 these individuals are connected to:
@@ -43,13 +43,13 @@ these individuals are connected to:
 and respective social groups!
 
 
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/assets/img/alumni/rrb.png"></p>
+<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/rrb.png"></p>
 
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/assets/img/alumni/luis_figueira.png"></p>
+<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/luis_figueira.png"></p>
 
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/assets/img/alumni/pedro_grilo.png"></p>
+<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/pedro_grilo.png"></p>
 
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/assets/img/alumni/jfsp.png"></p>
+<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/jfsp.png"></p>
 
 
 some of these former students are famous music stars you may know:
@@ -59,9 +59,9 @@ some of these former students are famous music stars you may know:
 2. <span translate="no">adolfo luxúria canibal</span>
 
 
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/assets/img/alumni/mjv.png"></p>
+<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/mjv.png"></p>
 
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/assets/img/alumni/alc.png"></p>
+<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/alc.png"></p>
 
 
 they spend every day inside a room taking turns at trying to get me to stab my head and genitalia in an alternate fashion whilst repeating the phrases, whilst engaging in orgies and greeting each others as if it was a normal social event. Others were recruited at <span translate="no">jardim adamastor</span> in lisbon and <span translate="no">bairro alto</span> to spend all day repeating phrases like parrots:
@@ -74,49 +74,49 @@ they spend every day inside a room taking turns at trying to get me to stab my h
 5. <span translate="no">com quem te meteste</span>
 
 
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/assets/img/jesus/golgota.png"></p>
+<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jesus/golgota.png"></p>
 
 
 i fled portugal to avoid the blue whale suicide game that was forced upon me and my family by <span translate="no">colégio militar</span> former students and this group of sadistic cowards pursued me to the netherlands, trying to force me to return to portugal, so they could use my mother as a target of violence and gamble my suicide in front of her for having refused to leave <span translate="no">colégio militar</span> and threatening exposure of the events in the news in 1996.
 
 
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/assets/img/jesus/jesus_carrying_cross.png"></p>
+<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jesus/jesus_carrying_cross.png"></p>
 
 
 they have been trying to portrait me as a homophobe, a xenophobe, a rapist and even a pedophile in criminal association with netherlands law enforcement and criminal associates of <span translate="no">jasper kums</span>, with extrajudicial punishment, all day since the summer of 2016.
 
 
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/assets/img/jesus/jesus_cross.png"></p>
+<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jesus/jesus_cross.png"></p>
 
 
 multiple of the recruited sadists entertain themselves forcing their victims to feel sexually abused and sodomized, whilst delivering putrid vibrotactile payloads of "kisses of death" to the head of their victims, as they try to force them to hurt themselves repeatedly, like poets of death and human degradation.
 
 
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/assets/img/jesus/holy_spirit.png"></p>
+<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jesus/holy_spirit.png"></p>
 
 
 they were enabled to destroy their victims and respective households, with family members of the victims also being targeted and having their teeth broken remotely by cowards cowards. they will force the whole family of their victims to feel sexually abused (if need be) by abusing <span translate="no">biophotonics</span> in order to force their victims into submission, and generate human degradation content for a closed circuit interactive spectacle, encouraging participation, so the players take turns executing extrajudicial <span translate="no">cybertorture</span> punishment to simulate mental illness.
 
 
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/assets/img/jesus/monk.png"></p>
+<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jesus/monk.png"></p>
 
 
 they act via recruited criminal associates like <span translate="no">carla maria marinho rodrigues</span>, <span translate="no">arthur moreno</span>, <span translate="no">jasper kums</span>, <span translate="no">luis muskiado</span>, <span translate="no">josé teixeira (bar crew hassan)</span> to execute their extrajudicial punishment, in an attempt to coerce me into psychiatry, going as far as systematically directing violence towards people who are physically near me.
 
 
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/assets/img/jesus/resurrection.png"></p>
+<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jesus/resurrection.png"></p>
 
 
 the procedure is hidden with medical malpractice via psychiatric fraud and false therapy (in the form of forced conventional pharmacotherapy, with a high risk of suicide) when the same medium could be used to provide real therapy. Instead they raise feelings of paranoia towards <span translate="no">biophotonics</span>, remote healthcare, neural engineering and bioelectric medicine (where the risk of suicide would be negligible).
 
 
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/assets/img/jesus/lamb_of_god.png"></p>
+<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jesus/lamb_of_god.png"></p>
 
 
 governments worldwide are denying us <span translate="no">neurorights</span>, whilst a synthetic hell on hearth is created as a demonic circus, where life is gambled with vibrotactile <span translate="no">cybertorture</span> to induce synthetic psychosis and feelings of self harm in a interactive spectacle, where participants take turns to gamble the suicide of their victims, in games that inspire so much hatred and anger amongst the population and which is are of the reasons that led to war in ukraine.
 
 
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/assets/img/jesus/adam_tree_of_life.png"></p>
+<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jesus/adam_tree_of_life.png"></p>
 
 
 until <span translate="no">neurorights</span> legislation is passed, it is likely you will continue seeing more and more homeless people talking to themselves, scenes of domestic violence on your television screens with multiple families being destroyed in sadistic rituals of ostentation of control over the physiology of others against their will via abuse of <span translate="no">biophotonics</span>, <span translate="no">photoacoustics</span>, and <span translate="no">thermoacoustics</span> to execute <span translate="no">cybertorture</span>.
