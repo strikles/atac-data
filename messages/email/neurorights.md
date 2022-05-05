@@ -156,7 +156,7 @@ they act via recruited criminal associates like carla maria marinho rodrigues, a
 the procedure is hidden with medical malpractice via psychiatric fraud and false therapy (in the form of forced conventional pharmacotherapy, with a high risk of suicide) when the same medium could be used to provide real therapy. Instead they raise feelings of paranoia towards biophotonics, remote healthcare, neural engineering and bioelectric medicine (where the risk of suicide would be negligible).
 
 
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jesus/rafael.png"></p>
+<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jesus/imaculate_heart.png"></p>
 
 
 governments worldwide are denying us neurorights, whilst a synthetic hell on hearth is created as a demonic circus, where life is gambled with vibrotactile cybertorture to induce synthetic psychosis and feelings of self harm in a interactive spectacle, where participants take turns to gamble the suicide of their victims, in games that inspire so much hatred and anger amongst the population and which is are of the reasons that led to war in ukraine.
