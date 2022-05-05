@@ -174,3 +174,11 @@ until neurorights legislation is passed, it is likely you will continue seeing m
 * say yes to neurorights
 * say no to the "homo sovieticus" initiative of pairing cybertorture with blue whale suicide games covered up with psychiatric fraud
 
+
+<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/us.png"></p>
+
+
+my sincere apologies :(
+
+
+
