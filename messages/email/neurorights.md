@@ -25,59 +25,27 @@ They create drug addicts with synthetic pain, setting cybertorture and cybersodo
 these individuals are connected to:
 
 
-* ricardo rebordão de brito
-* rui goncalo pires pintado
-* luis nazareth carvalho figueira
-* pedro miguel de brito esteves grilo
-* joão filipe saraiva pinheiro
-* pedro de queiroz antão
-* ricardo carrilho
-* paulo jorge varanda
-* frederico ferronha
-* oscar ferreira
-* thyago picco
-* rui ricardo borges marques sabino reino
-* pedro nuno da silva rocha
-* tito eurico miranda fernandes
+* ricardo rebordão de brito [^1]
+* rui goncalo pires pintado [^2]
+* luis nazareth carvalho figueira [^3]
+* pedro miguel de brito esteves grilo [^4]
+* joão filipe saraiva pinheiro [^5]
+* pedro de queiroz antão [^6]
+* ricardo carrilho [^7]
+* paulo jorge varanda [^8]
+* frederico ferronha [^19
+* oscar ferreira [^10]
+* thyago picco [^11]
+* rui ricardo borges marques sabino reino [^12]
+* pedro nuno da silva rocha [^13]
+* tito eurico miranda fernandes [^14]
 
-and respective social groups!
-
-
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/rrb.png"></p>
-
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/rui_pintado.png"></p>
-
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/luis_figueira.png"></p>
-
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/pedro_grilo.png"></p>
-
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/jfsp.png"></p>
-
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/pedro_antao.png"></p>
-
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/ricardo_carrilho.png"></p>
-
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/paulo_varanda.png"></p>
-
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/ferronha.png"></p>
-
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/oscar_ferreira.png"></p>
-
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/thyago_picco.png"></p>
-
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/cm_1988.png"></p>
-  
 
 some of these former colégio militar students are famous music stars you may know:
 
 
-* adolfo luxúria canibal
-* manuel joão vieira
-
-
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/mjv.png"></p>
-
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/alc.png"></p>
+* adolfo luxúria canibal [^15]
+* manuel joão vieira [^16]
 
 
 they spend every day inside a room taking turns at trying to get me to stab my head and genitalia in an alternate fashion, repeating the phrases and simultaneously engaging in orgies and greeting each others as if it was a normal social event. 
@@ -108,32 +76,6 @@ i fled portugal to avoid the blue whale suicide game that was forced upon me and
 they have been trying to portrait me as a homophobe, a xenophobe, a rapist and even a pedophile in criminal association with netherlands law enforcement and criminal associates of jasper kums, with extrajudicial punishment, all day since the summer of 2016.
 
 
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/others/jasper_kums.png"></p>
-
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/others/arthur_moreno.png"></p>
-
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/others/muskiado.png"></p>
-
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/others/paulinho.png"></p>
-
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/others/joel.png"></p>
-
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/others/marcelo_lima.png"></p>
-
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/others/bill_wandi.png"></p>
-
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/others/pedro_caetano.png"></p>
-
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/others/goncalo_duarte.png"></p>
-
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/others/tiago_roque.png"></p>
-
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/others/mazivo.png"></p>
-
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/others/joao_leiria.png"></p>
-
-
-
 multiple of the recruited sadists entertain themselves forcing their victims to feel sexually abused and sodomized, delivering putrid vibrotactile payloads of "kisses of death" to the head of their victims, as they try to force them to hurt themselves repeatedly, like poets of death and human degradation.
 
 
@@ -146,7 +88,7 @@ they were enabled to destroy their victims and respective households, with famil
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jesus/crucifixion_jesus_mary.png"></p>
 
 
-they act via recruited criminal associates like carla maria marinho rodrigues, arthur moreno, jasper kums, luis muskiado, josé teixeira (bar crew hassan) to execute their extrajudicial punishment, in an attempt to coerce me into psychiatry, going as far as systematically directing violence towards people who are physically near me.
+they act via recruited criminal associates ([^17], [^18], [^19], [^20], [^21], [^22], [^23], [^24], [^25], [^26], [^27], [^28]) to execute their extrajudicial punishment, in an attempt to coerce incarceration, psychiatry or self-harm as a gamble, going as far as systematically directing violence towards people who are physically near me, having a special interest on women.
 
 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jesus/rafael.png"></p>
@@ -167,18 +109,46 @@ governments worldwide are denying us neurorights, whilst a synthetic hell on hea
 until neurorights legislation is passed, it is likely you will continue seeing more and more homeless people talking to themselves, scenes of domestic violence on your television screens with multiple families being destroyed in sadistic rituals of ostentation of control over the physiology of others against their will via abuse of biophotonics, photoacoustics, and thermoacoustics to execute cybertorture.
 
 
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/books/homo_sovieticus.png"></p>
+<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/us.png"></p>
 
 
 * say yes to neurorights
 * say no to the "homo sovieticus" initiative of pairing cybertorture with blue whale suicide games covered up with psychiatric fraud
 
 
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/us.png"></p>
+<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/books/homo_sovieticus.png"></p>
 
 
-my sincere apologies :(
+Footnotes:
 
 
+[^1]: https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/rrb.png
+[^2]: https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/rui_pintado.png
+[^3]: https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/luis_figueira.png
+[^4]: https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/pedro_grilo.png
+[^5]: https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/jfsp.png
+[^6]: https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/pedro_antao.png
+[^7]: https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/ricardo_carrilho.png
+[^8]: https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/paulo_varanda.png
+[^9]: https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/ferronha.png
+[^10]: https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/oscar_ferreira.png
+[^11]: https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/thyago_picco.png
+[^12]: https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/cm_1988.png
+[^15]: https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/mjv.png
+[^16]: https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/alc.png
 
 
+footnotes others:
+
+[^17]: https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/others/jasper_kums.png
+[^18]: https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/others/arthur_moreno.png
+[^19]: https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/others/muskiado.png
+[^20]: https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/others/paulinho.png
+[^21]: https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/others/joel.png
+[^22]: https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/others/marcelo_lima.png
+[^23]: https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/others/bill_wandi.png
+[^24]: https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/others/pedro_caetano.png
+[^25]: https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/others/goncalo_duarte.png
+[^26]: https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/others/tiago_roque.png
+[^27]: https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/others/mazivo.png
+[^28]: https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/others/joao_leiria.png
