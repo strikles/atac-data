@@ -88,7 +88,7 @@ they were enabled to destroy their victims and respective households, with famil
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jesus/crucifixion_jesus_mary.png"></p>
 
 
-they act via recruited criminal associates ([^17], [^18], [^19], [^20], [^21], [^22], [^23], [^24], [^25], [^26], [^27], [^28]) to execute their extrajudicial punishment, in an attempt to coerce incarceration, psychiatry or self-harm as a gamble, going as far as systematically directing violence towards people who are physically near me, having a special interest on women.
+they act via recruited criminal associates [^17], [^18], [^19], [^20], [^21], [^22], [^23], [^24], [^25], [^26], [^27], [^28] to execute their extrajudicial punishment, in an attempt to coerce incarceration, psychiatry or self-harm as a gamble, going as far as systematically directing violence towards people who are physically near me, having a special interest on women.
 
 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jesus/rafael.png"></p>
@@ -134,12 +134,10 @@ Footnotes:
 [^10]: https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/oscar_ferreira.png
 [^11]: https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/thyago_picco.png
 [^12]: https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/cm_1988.png
+[^13]: no_url "No Image"
+[^14]: no_url "No Image"
 [^15]: https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/mjv.png
 [^16]: https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/alc.png
-
-
-footnotes others:
-
 [^17]: https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/others/jasper_kums.png
 [^18]: https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/others/arthur_moreno.png
 [^19]: https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/others/muskiado.png
