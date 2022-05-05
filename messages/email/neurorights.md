@@ -73,7 +73,6 @@ some of these former colégio militar students are famous music stars you may kn
 
 * adolfo luxúria canibal
 * manuel joão vieira
-* nuno duarte
 
 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/mjv.png"></p>
