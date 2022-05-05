@@ -38,9 +38,12 @@ these individuals are connected to:
 6. <span translate="no">rui goncalo pires pintado</span>
 7. <span translate="no">joão filipe saraiva pinheiro</span>
 8. <span translate="no">pedro miguel de brito esteves grilo</span>
-9. 1. <span translate="no">pedro nuno da silva rocha</span>
-
-
+9. <span translate="no">pedro nuno da silva rocha</span>
+10. <span translate="no">pedro miguel reis</span>
+11. <span translate="no">oscar ferreira</span>
+12. <span translate="no">paulo jorge varanda</span>
+12. <span translate="no">tito eurico miranda fernandes</span>
+13. 
 and respective social groups!
 
 
