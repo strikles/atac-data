@@ -1,0 +1,15 @@
+<mj-section>
+    <mj-column>
+        <mj-text align="left"> Some text for your preheader</mj-text>
+    </mj-column>
+    <mj-column>
+        <mj-text align="right"><a href="email-permalink"> Read in the browser </a></mj-text>
+    </mj-column>
+</mj-section>
+<mj-section background-url="/assets/img/background-url.jpg">
+    <mj-column>
+        <mj-image src="/assets/img/mj-image.jpeg"></mj-image>
+        <mj-text align="center"> Lorem ipsum </mj-text>
+        <mj-button> Discover </mj-button>
+    </mj-column>
+</mj-section>
