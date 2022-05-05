@@ -7,7 +7,7 @@ cybertorture is recognized under A/HRC/43/49 by the United Nations and is used i
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jesus/golgota.png"></p>
 
 
-those abusing biophotonics to execute extrajudicial punishment resort to directing violence towards women, parents and children, creating drug addicts with synthetic pain and risking forcing acts of self harm onto others for entertainment, whilst attempting to portray themselves as artists of human degradation, social stratification and self harm, with grotesque vibrotactile and sonic payloads of "kisses", setting synthetic pain, articulation of tongue and jaw of the victim, cybersodomy, sex sabotage in males (via vibrotactile torture to induce forced perineum contractions) and genital abuse in females (possibly resulting in stockholm syndrome) as being commonplace in our society!
+those abusing biophotonics to execute extrajudicial punishment resort to directing violence towards women, parents and children, creating drug addicts with synthetic pain and risking forcing acts of self harm onto others for entertainment, attempting to portray themselves as artists of human degradation, social stratification and self harm, with grotesque vibrotactile and sonic payloads of "kisses", setting synthetic pain, articulation of tongue and jaw of the victim, cybersodomy, sex sabotage in males (via vibrotactile torture to induce forced perineum contractions) and genital abuse in females (possibly resulting in stockholm syndrome) as being commonplace in our society!
 
 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jesus/jesus_lamb.png"></p>
@@ -81,7 +81,7 @@ some of these former colégio militar students are famous music stars you may kn
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/alc.png"></p>
 
 
-they spend every day inside a room taking turns at trying to get me to stab my head and genitalia in an alternate fashion whilst repeating the phrases, whilst engaging in orgies and greeting each others as if it was a normal social event. 
+they spend every day inside a room taking turns at trying to get me to stab my head and genitalia in an alternate fashion, repeating the phrases and simultaneously engaging in orgies and greeting each others as if it was a normal social event. 
 
 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jesus/jesus_cross.png"></p>
@@ -135,7 +135,7 @@ they have been trying to portrait me as a homophobe, a xenophobe, a rapist and e
 
 
 
-multiple of the recruited sadists entertain themselves forcing their victims to feel sexually abused and sodomized, whilst delivering putrid vibrotactile payloads of "kisses of death" to the head of their victims, as they try to force them to hurt themselves repeatedly, like poets of death and human degradation.
+multiple of the recruited sadists entertain themselves forcing their victims to feel sexually abused and sodomized, delivering putrid vibrotactile payloads of "kisses of death" to the head of their victims, as they try to force them to hurt themselves repeatedly, like poets of death and human degradation.
 
 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jesus/holy_spirit.png"></p>
