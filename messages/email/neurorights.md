@@ -20,10 +20,11 @@ They create drug addicts with synthetic pain, setting cybertorture and cybersodo
 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/others/jasper_kums.png"></p>
 
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/others/mila.png"></p>
+
+colégio militar former students and criminal associates of jasper kums, arthur moreno, luis muskiado, tania borboleta, josé teixeira among many others, wake me up every day, in the middle of the night, trying to force me to break everything I own, trying to force me to hurt myself and mutilate my ears, head and genitals by abusing biophotonics in a manner similar to the soviet style murder of mathew puncher.
 
 
-colégio militar former students and criminal associates of jasper kums and mila jansen, arthur moreno, luis muskiado, tania borboleta, josé teixeira among many others, wake me up every day, in the middle of the night, trying to force me to break everything I own, trying to force me to hurt myself and mutilate my ears, head and genitals by abusing biophotonics in a manner similar to the soviet style murder of mathew puncher.
+<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/matthew_puncher.png"></p>
 
 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/arthur_moreno.png"></p>
@@ -48,23 +49,25 @@ colégio militar former students and criminal associates of jasper kums and mila
 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/joao_leiria.png"></p>
 
+* pedro nuno da silva rocha
+* tito eurico miranda fernandes
+  
 
 these individuals are connected to:
 
 
+* ricardo rebordão de brito
+* rui goncalo pires pintado
+* luis nazareth carvalho figueira
+* pedro miguel de brito esteves grilo
+* joão filipe saraiva pinheiro
 * pedro de queiroz antão
 * ricardo carrilho
-* ricardo rebordão de brito
-* rui ricardo borges marques sabino reino
-* luis nazareth carvalho figueira
-* rui goncalo pires pintado
-* joão filipe saraiva pinheiro
-* pedro miguel de brito esteves grilo
-* pedro nuno da silva rocha
-* pedro miguel reis
-* oscar ferreira
 * paulo jorge varanda
-* tito eurico miranda fernandes
+* frederico ferronha
+* oscar ferreira
+* thyago picco
+* rui ricardo borges marques sabino reino
 
 and respective social groups!
 
@@ -91,6 +94,7 @@ and respective social groups!
 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/thyago_picco.png"></p>
 
+<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/cm_1988.png"></p>
 
 some of these former students are famous music stars you may know:
 
@@ -108,11 +112,11 @@ some of these former students are famous music stars you may know:
 they spend every day inside a room taking turns at trying to get me to stab my head and genitalia in an alternate fashion whilst repeating the phrases, whilst engaging in orgies and greeting each others as if it was a normal social event. Others were recruited at jardim adamastor in lisbon and bairro alto to spend all day repeating phrases like parrots:
 
 
-* desisto
-* estas a ver o que a casa gasta
-* nao gostamos dele
-* vai-te foder com essa conversa de merda
-* com quem te meteste
+* "desisto"
+* "estas a ver o que a casa gasta"
+* "nao gostamos dele"
+* "vai-te foder com essa conversa de merda"
+* "com quem te meteste"
 
 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jesus/golgota.png"></p>
@@ -163,5 +167,9 @@ governments worldwide are denying us neurorights, whilst a synthetic hell on hea
 until neurorights legislation is passed, it is likely you will continue seeing more and more homeless people talking to themselves, scenes of domestic violence on your television screens with multiple families being destroyed in sadistic rituals of ostentation of control over the physiology of others against their will via abuse of biophotonics, photoacoustics, and thermoacoustics to execute cybertorture.
 
 
+<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/homo_sovieticus.png"></p>
+
+
 * say yes to neurorights
-* say no to cybertorture and blue whale suicide games covered up with psychiatric fraud
+* say no to the "homo sovieticus" initiative of pairing cybertorture with blue whale suicide games covered up with psychiatric fraud
+
