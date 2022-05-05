@@ -22,30 +22,7 @@ several colégio militar (largo da luz, lisbon, portugal) former students linked
 They create drug addicts with synthetic pain, setting cybertorture and cybersodomy as extrajudicial punishment in order to force people to hurt themselves (head, anus and genitals) with relentless vibrotactile cybertorture to force the victim to bargain for relief and to complete the tasks they are issued via synthetic telepathy.
 
 
-these individuals are connected to:
-
-
-* ricardo rebordão de brito [^1]
-* rui goncalo pires pintado [^2]
-* luis nazareth carvalho figueira [^3]
-* pedro miguel de brito esteves grilo [^4]
-* joão filipe saraiva pinheiro [^5]
-* pedro de queiroz antão [^6]
-* ricardo carrilho [^7]
-* paulo jorge varanda [^8]
-* frederico ferronha [^19
-* oscar ferreira [^10]
-* thyago picco [^11]
-* rui ricardo borges marques sabino reino [^12]
-* pedro nuno da silva rocha [^13]
-* tito eurico miranda fernandes [^14]
-
-
-some of these former colégio militar students are famous music stars you may know:
-
-
-* adolfo luxúria canibal [^15]
-* manuel joão vieira [^16]
+these individuals are connected to ricardo rebordão de brito [^1], rui goncalo pires pintado [^2], luis nazareth carvalho figueira [^3], pedro miguel de brito esteves grilo [^4], joão filipe saraiva pinheiro [^5], pedro de queiroz antão [^6], ricardo carrilho [^7], paulo jorge varanda [^8], frederico ferronha [^19], oscar ferreira [^10], thyago picco [^11], rui ricardo borges marques sabino reino [^12], pedro nuno da silva rocha [^13], tito eurico miranda fernandes [^14]. some of these former colégio militar students are famous music stars you may know: adolfo luxúria canibal [^15] and manuel joão vieira [^16]
 
 
 they spend every day inside a room taking turns at trying to get me to stab my head and genitalia in an alternate fashion, repeating the phrases and simultaneously engaging in orgies and greeting each others as if it was a normal social event. 
