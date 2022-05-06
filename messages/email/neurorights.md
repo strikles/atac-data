@@ -27,7 +27,7 @@ these individuals are connected to ricardo rebordão de brito [^1], rui goncalo 
 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/pedro_grilo.png"></p>
 
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/jfsp.png
+<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/jfsp.png"></p>
 
 
 they spend every day inside a room taking turns at trying to get me to stab my head and genitalia in an alternate fashion, repeating the phrases and simultaneously engaging in orgies and greeting each others as if it was a normal social event. 
@@ -57,7 +57,9 @@ i fled portugal to avoid the blue whale suicide game that was forced upon me and
 
 they have been trying to portrait me as a homophobe, a xenophobe, a rapist and even a pedophile in criminal association with netherlands law enforcement and criminal associates of jasper kums, with extrajudicial punishment, all day since the summer of 2016.
 
+
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jesus/rafael.png"></p>
+
 
 multiple of the recruited sadists entertain themselves forcing their victims to feel sexually abused and sodomized, delivering putrid vibrotactile payloads of "kisses of death" to the head of their victims, as they try to force them to hurt themselves repeatedly, like poets of death and human degradation.
 
