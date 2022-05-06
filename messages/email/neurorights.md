@@ -96,6 +96,7 @@ until neurorights legislation is passed, it is likely you will continue seeing m
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/books/homo_sovieticus.png"></p>
 
 
+
 Footnotes:
 
 
@@ -128,5 +129,3 @@ Footnotes:
 [^27]: https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/others/mazivo.png
 [^28]: https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/others/joao_leiria.png
 [^29]: https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/others/jose_teixeira.png
-
-$\alpha & \omega$
