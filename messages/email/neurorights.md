@@ -19,15 +19,33 @@ several colégio militar (largo da luz, lisbon, portugal) former students linked
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/matthew_puncher.png"></p>
 
 
-They create drug addicts with synthetic pain, setting cybertorture and cybersodomy as extrajudicial punishment in order to force people to hurt themselves (head, anus and genitals) with relentless vibrotactile cybertorture to force the victim to bargain for relief and to complete the tasks they are issued via synthetic telepathy.
+these individuals create drug addicts with synthetic pain, setting cybertorture and cybersodomy as extrajudicial punishment in order to force people to hurt themselves (head, anus and genitals) with relentless vibrotactile cybertorture to force the victim to bargain for relief and to complete the tasks they are issued via synthetic telepathy.
 
 
-these individuals are connected to ricardo rebordão de brito [^1], rui goncalo pires pintado [^2], luis nazareth carvalho figueira [^3], pedro miguel de brito esteves grilo [^4], joão filipe saraiva pinheiro [^5], pedro de queiroz antão [^6], ricardo carrilho [^7], paulo jorge varanda [^8], frederico ferronha [^19], oscar ferreira [^10], thyago picco [^11], rui ricardo borges marques sabino reino [^12], pedro nuno da silva rocha [^13], tito eurico miranda fernandes [^14]. some of these former colégio militar students are famous music stars you may know: adolfo luxúria canibal [^15] and manuel joão vieira [^16]
+they are connected to ricardo rebordão de brito [^1], rui goncalo pires pintado [^2], luis nazareth carvalho figueira [^3], pedro miguel de brito esteves grilo [^4], joão filipe saraiva pinheiro [^5], pedro de queiroz antão [^6], ricardo carrilho [^7], paulo jorge varanda [^8], frederico ferronha [^19], oscar ferreira [^10], thyago picco [^11], rui ricardo borges marques sabino reino [^12], pedro nuno da silva rocha [^13], tito eurico miranda fernandes [^14]. 
 
+
+<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/rrb.png"></p>
+
+<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/rui_pintado.png"></p>
+
+<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/luis_figueira.png"></p>
 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/pedro_grilo.png"></p>
 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/jfsp.png"></p>
+
+<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/pedro_antao.png"></p>
+
+<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/ricardo_carrilho.png"></p>
+
+
+some of these former colégio militar students are linked to famous music stars you may know: adolfo luxúria canibal [^15] and manuel joão vieira [^16]
+
+
+<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/mjv.png"></p>
+
+<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/alc.png"></p>
 
 
 they spend every day inside a room taking turns at trying to get me to stab my head and genitalia in an alternate fashion, repeating the phrases and simultaneously engaging in orgies and greeting each others as if it was a normal social event. 
@@ -77,7 +95,9 @@ they act via recruited criminal associates [^17], [^18], [^19], [^20], [^21], [^
 
 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/others/muskiado.png"></p>
+
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/others/paulinho.png"></p>
+
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/others/joel.png"></p>
 
 
