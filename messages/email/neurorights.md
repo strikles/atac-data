@@ -25,6 +25,11 @@ They create drug addicts with synthetic pain, setting cybertorture and cybersodo
 these individuals are connected to ricardo rebordão de brito [^1], rui goncalo pires pintado [^2], luis nazareth carvalho figueira [^3], pedro miguel de brito esteves grilo [^4], joão filipe saraiva pinheiro [^5], pedro de queiroz antão [^6], ricardo carrilho [^7], paulo jorge varanda [^8], frederico ferronha [^19], oscar ferreira [^10], thyago picco [^11], rui ricardo borges marques sabino reino [^12], pedro nuno da silva rocha [^13], tito eurico miranda fernandes [^14]. some of these former colégio militar students are famous music stars you may know: adolfo luxúria canibal [^15] and manuel joão vieira [^16]
 
 
+<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/pedro_grilo.png"></p>
+
+<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/jfsp.png
+
+
 they spend every day inside a room taking turns at trying to get me to stab my head and genitalia in an alternate fashion, repeating the phrases and simultaneously engaging in orgies and greeting each others as if it was a normal social event. 
 
 
@@ -52,6 +57,7 @@ i fled portugal to avoid the blue whale suicide game that was forced upon me and
 
 they have been trying to portrait me as a homophobe, a xenophobe, a rapist and even a pedophile in criminal association with netherlands law enforcement and criminal associates of jasper kums, with extrajudicial punishment, all day since the summer of 2016.
 
+<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jesus/rafael.png"></p>
 
 multiple of the recruited sadists entertain themselves forcing their victims to feel sexually abused and sodomized, delivering putrid vibrotactile payloads of "kisses of death" to the head of their victims, as they try to force them to hurt themselves repeatedly, like poets of death and human degradation.
 
@@ -68,10 +74,12 @@ they were enabled to destroy their victims and respective households, with famil
 they act via recruited criminal associates [^17], [^18], [^19], [^20], [^21], [^22], [^23], [^24], [^25], [^26], [^27], [^28] to execute their extrajudicial punishment, in an attempt to coerce incarceration, psychiatry or self-harm as a gamble, going as far as systematically directing violence towards people who are physically near me, having a special interest on women.
 
 
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jesus/rafael.png"></p>
+<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/others/muskiado.png"></p>
+<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/others/paulinho.png"></p>
+<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/others/joel.png"></p>
 
 
-the procedure is hidden with medical malpractice via psychiatric fraud and false therapy (in the form of forced conventional pharmacotherapy, with a high risk of suicide) when the same medium could be used to provide real therapy. Instead they raise feelings of paranoia towards biophotonics, remote healthcare, neural engineering and bioelectric medicine (where the risk of suicide would be negligible).
+the procedure is hidden with medical malpractice via psychiatric fraud and false therapy (in the form of forced conventional pharmacotherapy, with a high risk of suicide) when the same medium could be used to provide real therapy. Instead they raise feelings of paranoia towards biophotonics, remote healthcare, neural engineering and bioelectric medicine (where the risk of suicide would be negligible)
 
 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jesus/imaculate_heart.png"></p>
@@ -94,7 +102,6 @@ until neurorights legislation is passed, it is likely you will continue seeing m
 
 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/books/homo_sovieticus.png"></p>
-
 
 
 Footnotes:
