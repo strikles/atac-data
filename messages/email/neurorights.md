@@ -7,7 +7,7 @@ several colégio militar (largo da luz, lisbon, portugal) former students linked
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/matthew_puncher.png"></p>
 
 
-these individuals create drug addicts with synthetic pain, setting cybertorture and cybersodomy as extrajudicial punishment in order to force people to hurt themselves (head, anus and genitals) with relentless vibrotactile cybertorture to force the victim to bargain for relief and to complete the tasks they are issued via synthetic telepathy and act ìn criminal association with multiple others like the individuals below.
+these individuals create drug addicts with synthetic pain, setting cybertorture and cybersodomy as extrajudicial punishment in order to force people to hurt themselves (head, anus and genitals) with relentless vibrotactile cybertorture to force the victim to bargain for relief and to complete the tasks they are issued via synthetic telepathy and act ìn criminal association with multiple others like the group of individuals below.
 
 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/others/muskiado.png"></p>
@@ -15,6 +15,15 @@ these individuals create drug addicts with synthetic pain, setting cybertorture 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/others/paulinho.png"></p>
 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/others/jose_teixeira.png"></p>
+
+
+Here follows another group:
+
+
+<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/others/goncalo_duarte.png"></p>
+<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/others/tiago_roque.png"></p>
+<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/others/mazivo.png"></p>
+<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/others/joao_leiria.png"></p>
 
 
 cybertorture is recognized under A/HRC/43/49 by the United Nations and is used in grotesque extrajudicial punishment rituals for the purpose of social stratification, as an interactive spectacle encouraging participation, with the intent of accumulating hatred, by preying on cognitive biases of those recruited to execute the extrajudicial punishment.
