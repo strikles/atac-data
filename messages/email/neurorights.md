@@ -4,31 +4,40 @@
 dear sir/madam
 
 
+several colégio militar (largo da luz, lisbon, portugal) former students linked to portuguese law enforcement are sitting in a room everyday, taking turns at forcing people to talk to themselves, hurt themselves, trying to force synthetic psychosis onto their victims whenever they are near other people, to use them as targets of directed violence. These targets could be elderly parents at the end of their life, women,  children and even handicapped people. They wake me up daily, in the middle of the night or early in the morning in a ritual of articulating my tongue and trying to force me hurt myself (ears, head and genitals) and break everything I own, by abusing biophotonics, in a manner similar to the soviet style murder of mathew puncher.
+
+
+<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/matthew_puncher.png"></p>
+
+
+these individuals create drug addicts with synthetic pain, setting cybertorture and cybersodomy as extrajudicial punishment in order to force people to hurt themselves (head, anus and genitals) with relentless vibrotactile cybertorture to force the victim to bargain for relief and to complete the tasks they are issued via synthetic telepathy and act ìn criminal association with multiple others like the individuals below.
+
+
+<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/others/muskiado.png"></p>
+
+<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/others/paulinho.png"></p>
+
+<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/others/jose_teixeira.png"></p>
+
+
 cybertorture is recognized under A/HRC/43/49 by the United Nations and is used in grotesque extrajudicial punishment rituals for the purpose of social stratification, as an interactive spectacle encouraging participation, with the intent of accumulating hatred, by preying on cognitive biases of those recruited to execute the extrajudicial punishment.
 
 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jesus/golgota.png"></p>
 
 
-those abusing biophotonics to execute extrajudicial punishment resort to directing violence towards women, parents and children, creating drug addicts with synthetic pain and risking forcing acts of self harm onto others for entertainment, attempting to portray themselves as artists of human degradation, social stratification and self harm, with grotesque vibrotactile and sonic payloads of "kisses", setting synthetic pain, articulation of tongue and jaw of the victim, cybersodomy, sex sabotage in males (via vibrotactile torture to induce forced perineum contractions) and genital abuse in females (possibly resulting in stockholm syndrome) as being commonplace in our society!
+They abuse biophotonics to execute extrajudicial punishment, resorting to directing violence towards women, parents and children, creating drug addicts with synthetic pain and risking forcing acts of self harm onto others for entertainment, attempting to portray themselves as artists of human degradation, social stratification and self harm, with grotesque vibrotactile and sonic payloads of "kisses", setting synthetic pain, articulation of tongue and jaw of the victim, cybersodomy, sex sabotage in males (via vibrotactile torture to induce forced perineum contractions) and genital abuse in females (possibly resulting in stockholm syndrome) as being commonplace in our society!
 
 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jesus/jesus_lamb.png"></p>
-
-
-several colégio militar (largo da luz, lisbon, portugal) former students linked to portuguese law enforcement are sitting in a room everyday, taking turns at forcing people to talk to themselves, hurt themselves, trying to force synthetic psychosis onto their victims whenever they are near other people, to use them as targets of directed violence. These targets could be elderly parents at the end of their life, women,  children and even handicapped people. They wake me up daily, in the middle of the night or early in the morning in a ritual of articulating my tongue and trying to force me hurt myself (ears, head and genitals) and break everything I own, by abusing biophotonics in a manner similar to the soviet style murder of mathew puncher.
-
-
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/matthew_puncher.png"></p>
-
-
-these individuals create drug addicts with synthetic pain, setting cybertorture and cybersodomy as extrajudicial punishment in order to force people to hurt themselves (head, anus and genitals) with relentless vibrotactile cybertorture to force the victim to bargain for relief and to complete the tasks they are issued via synthetic telepathy.
 
 
 they are connected to ricardo rebordão de brito [^1], rui goncalo pires pintado [^2], luis nazareth carvalho figueira [^3], pedro miguel de brito esteves grilo [^4], joão filipe saraiva pinheiro [^5], pedro de queiroz antão [^6], ricardo carrilho [^7], paulo jorge varanda [^8], frederico ferronha [^19], oscar ferreira [^10], thyago picco [^11], rui ricardo borges marques sabino reino [^12], pedro nuno da silva rocha [^13], tito eurico miranda fernandes [^14]. 
 
 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/rrb.png"></p>
+
+<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/oscar_ferreira.png"></p>
 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/rui_pintado.png"></p>
 
@@ -96,10 +105,6 @@ they were enabled to destroy their victims and respective households, with famil
 
 they act via recruited criminal associates [^17], [^18], [^19], [^20], [^21], [^22], [^23], [^24], [^25], [^26], [^27], [^28], [^29], [^30] to execute their extrajudicial punishment, in an attempt to coerce incarceration, psychiatry or self-harm as a gamble, going as far as systematically directing violence towards people who are physically near me, having a special interest on women.
 
-
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/others/muskiado.png"></p>
-
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/others/paulinho.png"></p>
 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/others/joel.png"></p>
 
