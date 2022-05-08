@@ -1,10 +1,7 @@
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jesus/jesus_king.png"></p>
 
 
-dear sir/madam
-
-
-several colégio militar (largo da luz, lisbon, portugal) former students linked to portuguese law enforcement are sitting in a room everyday, taking turns at forcing people to talk to themselves, hurt themselves, trying to force synthetic psychosis onto their victims whenever they are near other people, to use them as targets of directed violence. These targets could be elderly parents at the end of their life, women,  children and even handicapped people. They wake me up daily, in the middle of the night or early in the morning in a ritual of articulating my tongue and trying to force me hurt myself (ears, head and genitals) and break everything I own, by abusing biophotonics, in a manner similar to the soviet style murder of mathew puncher.
+several colégio militar (largo da luz, lisbon, portugal) former students linked to portuguese law enforcement are sitting in a room everyday, taking turns at forcing people to talk to themselves, hurt themselves, trying to force synthetic psychosis onto their victims whenever they are near other people, to use them as targets of directed violence. these targets could be elderly parents at the end of their life, women,  children and even handicapped people. They wake me up daily, in the middle of the night or early in the morning in a ritual of articulating my tongue and trying to force me hurt myself (ears, head and genitals) and break everything I own, by abusing biophotonics, in a manner similar to the soviet style murder of mathew puncher.
 
 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/matthew_puncher.png"></p>
@@ -124,18 +121,17 @@ governments worldwide are denying us neurorights, whilst a synthetic hell on hea
 until neurorights legislation is passed, it is likely you will continue seeing more and more homeless people talking to themselves, scenes of domestic violence on your television screens with multiple families being destroyed in sadistic rituals of ostentation of control over the physiology of others against their will via abuse of biophotonics, photoacoustics, and thermoacoustics to execute cybertorture.
 
 
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/us.png"></p>
+<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/books/homo_sovieticus.png"></p>
 
 
 * say yes to neurorights
 * say no to the "homo sovieticus" initiative of pairing cybertorture with blue whale suicide games covered up with psychiatric fraud
 
 
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/books/homo_sovieticus.png"></p>
-
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jesus/mary.png"></p>
 
 
+### Footnotes:
 [^1]: https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/rrb.png
 [^2]: https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/rui_pintado.png
 [^3]: https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/luis_figueira.png
