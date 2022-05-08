@@ -26,7 +26,7 @@ cybertorture is recognized under A/HRC/43/49 by the United Nations and is used i
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jesus/golgota.png"></p>
 
 
-They abuse biophotonics to execute extrajudicial punishment, resorting to directing violence towards women, parents and children, creating drug addicts with synthetic pain and risking forcing acts of self harm onto others for entertainment, attempting to portray themselves as artists of human degradation, social stratification and self harm, with grotesque vibrotactile and sonic payloads of "kisses", setting synthetic pain, articulation of tongue and jaw of the victim, cybersodomy, sex sabotage in males (via vibrotactile torture to induce forced perineum contractions) and genital abuse in females (possibly resulting in stockholm syndrome) as being commonplace in our society!
+they abuse biophotonics to execute extrajudicial punishment, resorting to directing violence towards women, parents and children, creating drug addicts with synthetic pain and risking forcing acts of self harm onto others for entertainment, attempting to portray themselves as artists of human degradation, social stratification and self harm, with grotesque vibrotactile and sonic payloads of "kisses", setting synthetic pain, articulation of tongue and jaw of the victim, cybersodomy, sex sabotage in males (via vibrotactile torture to induce forced perineum contractions) and genital abuse in females (possibly resulting in stockholm syndrome) as being commonplace in our society!
 
 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jesus/jesus_lamb.png"></p>
@@ -85,19 +85,19 @@ i fled portugal to avoid the blue whale suicide game that was forced upon me and
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jesus/holy_spirit.png"></p>
 
 
-they have been trying to portrait me as a homophobe, a xenophobe, a rapist and even a pedophile in criminal association with netherlands law enforcement and criminal associates of jasper kums, with extrajudicial punishment, all day since the summer of 2016.
+they have been trying to portrait me as a homophobe, a xenophobe, a rapist an addict, a drug dealer, a pimp and even a pedophile in criminal association with netherlands law enforcement and criminal associates of jasper kums, with extrajudicial punishment, all day, mutiple times perminute (if not per second) since the summer of 2016.
 
 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jesus/rafael.png"></p>
 
 
-multiple of the recruited sadists entertain themselves forcing their victims to feel sexually abused and sodomized, delivering putrid vibrotactile payloads of "kisses of death" to the head of their victims, as they try to force them to hurt themselves repeatedly, like poets of death and human degradation.
+multiple of the recruited sadists entertain themselves forcing their victims to feel sexually abused and sodomized, delivering putrid vibrotactile payloads of "kisses of death" to the head of their victims, as they try to force their victims to hurt themselves repeatedly, like poets of death and human degradation.
 
 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jesus/monk.png"></p>
 
 
-they were enabled to destroy their victims and respective households, with family members of the victims also being targeted and having their teeth broken remotely by cowards cowards. they will force the whole family of their victims to feel sexually abused (if need be) by abusing biophotonics in order to force their victims into submission, and generate human degradation content for a closed circuit interactive spectacle, encouraging participation, so the players take turns executing extrajudicial cybertorture punishment to simulate mental illness.
+they were enabled to destroy their victims and respective households, with family members of the victims also being targeted and having their teeth broken remotely by cowards. they will force the families of their victims to feel sexually abused by abusing biophotonics, in order to force their victims into psychiatric submission, whilst simultaneously generating human degradation content for a closed circuit interactive spectacle, encouraging participation, so the players take turns executing extrajudicial cybertorture, articulating tongues and delivering vibrotactile punishment and synthetic pain to simulate mental illness.
 
 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jesus/crucifixion_jesus_mary.png"></p>
@@ -115,7 +115,7 @@ the procedure is hidden with medical malpractice via psychiatric fraud and false
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jesus/imaculate_heart.png"></p>
 
 
-governments worldwide are denying us neurorights, whilst a synthetic hell on hearth is created as a demonic circus, where life is gambled with vibrotactile cybertorture to induce synthetic psychosis and feelings of self harm in a interactive spectacle, where participants take turns to gamble the suicide of their victims, in games that inspire so much hatred and anger amongst the population and which is are of the reasons that led to war in ukraine.
+governments worldwide are denying us neurorights, whilst a synthetic hell on hearth is created as a demonic psychiatric circus, where life is gambled with vibrotactile cybertorture to induce synthetic psychosis and feelings of self harm in a interactive spectacle, where participants take turns to gamble self-harm and even suicide of their victims, in snuff show style" suicide games that inspire so much hatred and anger amongst the population and which is are of the reasons that led to war in ukraine.
 
 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jesus/adam_tree_of_life.png"></p>
