@@ -140,7 +140,7 @@ until neurorights legislation is passed, it is likely you will continue seeing m
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jesus/mary.png"></p>
 
 
-<p align='center' width='100%'><img src='https://math.vercel.app?from=%5CAlpha+%5CCup+%5COmega.svg'></p>
+<p align="center" width="100%"><img src="https://math.vercel.app?from=%5Cfrac%7B1%7D%7B%5CGamma%28s%29%7D%5Cint_%7B0%7D%5E%7B%5Cinfty%7D%5Cfrac%7Bu%5E%7Bs-1%7D%7D%7Be%5E%7Bu%7D-1%7D%5Cmathrm%7Bd%7Du.svg"></p>
 
 
 ### Footnotes:
