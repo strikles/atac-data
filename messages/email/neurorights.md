@@ -140,6 +140,8 @@ until neurorights legislation is passed, it is likely you will continue seeing m
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jesus/mary.png"></p>
 
 
+$\displaystyle \int x^2 = \frac{x^3}{3} + C$
+
 ### Footnotes:
 [^1]: https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/rrb.png
 [^2]: https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/rui_pintado.png
