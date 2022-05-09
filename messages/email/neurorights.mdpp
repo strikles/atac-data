@@ -121,7 +121,7 @@ the procedure is hidden with medical malpractice via psychiatric fraud and false
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jesus/imaculate_heart.png"></p>
 
 
-governments worldwide are denying us neurorights, whilst a synthetic hell on hearth is created as a demonic psychiatric circus, where life is gambled with vibrotactile cybertorture to induce synthetic psychosis and feelings of self harm in a interactive spectacle, where participants take turns to gamble self-harm and even suicide of their victims, in snuff show style" suicide games that inspire so much hatred and anger amongst the population and which is are of the reasons that led to war in ukraine.
+governments worldwide are denying us neurorights, whilst a synthetic hell on hearth is created as a demonic psychiatric circus, where life is gambled with vibrotactile cybertorture to induce synthetic psychosis and feelings of self harm in a interactive spectacle, where participants take turns to gamble self-harm and even suicide of their victims, in snuff show style" suicide games that inspire so much hatred and anger amongst the population and which are of the reasons that led to war in ukraine.
 
 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jesus/adam_tree_of_life.png"></p>
