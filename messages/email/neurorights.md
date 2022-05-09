@@ -126,6 +126,10 @@ governments worldwide are denying us neurorights, whilst a synthetic hell on hea
 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jesus/adam_tree_of_life.png"></p>
 
+<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/polititians/eduardo_marcal_grilo.png"></p>
+
+<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/martiniano_nuno_goncalves.png"></p>
+
 
 until neurorights legislation is passed, it is likely you will continue seeing more and more homeless people talking to themselves, scenes of domestic violence on your television screens with multiple families being destroyed in sadistic rituals of ostentation of control over the physiology of others against their will via abuse of biophotonics, photoacoustics, and thermoacoustics to execute cybertorture.
 
