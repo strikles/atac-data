@@ -126,7 +126,7 @@ governments worldwide are denying us neurorights, whilst a synthetic hell on hea
 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jesus/adam_tree_of_life.png"></p>
 
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/polititians/eduardo_marcal_grilo.png"></p>
+<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/politicians/eduardo_marcal_grilo.png"></p>
 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/martiniano_nuno_goncalves.png"></p>
 
