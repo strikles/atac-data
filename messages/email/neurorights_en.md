@@ -13,13 +13,13 @@ several alumni of colegio militar (largo da luz, lisbon, portugal) linked to ped
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jesus/jesus_lamb.png"></p>
 
 
-They engage in a daily ritual of articulating my tongue with the words "psychiatrist", "psychiatry" and "medication" while sodomizing me and torturing me genitally to create a piling psychological antagonistic effect and monger hatred increasing the odds of directed violence towards psychiatrists and medical staff in a clinical scenario.
+They engage in a daily ritual of articulating my tongue with the words "psychiatrist", "psychiatry" and "medication" while sodomizing me and torturing me genitally to create a piling psychological antagonistic effect and monger hatred, increasing the odds of directed violence towards psychiatrists and medical staff in a clinical scenario.
 
 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/others/others.gif"></p>
 
 
-Simultaneously, dutch psychiatrist Emile Barkhof (who has visited the location where this group of individuals exact their extrajudicial cybertorture sentences) along with elected government officials who watch the human degradation spectacle and instead of denouncing it on the news, or reporting it to the police, watch the macabre game where I a blue whale style suicide game similar to mathew puncher's soviet-style murder, where I am issued tasks such as "breaking my phone, my laptop and mutilating my penis" in the portuguese language, and forced to pick between:
+Simultaneously, dutch psychiatrist Emile Barkhof (who has visited the location where this group of individuals exact their extrajudicial cybertorture sentences) along with elected government officials who watch the human degradation spectacle and instead of denouncing it on the news, or reporting it to the police, watch the macabre spectacle as a blue whale style suicide game similar to mathew puncher's soviet-style murder, where I am issued tasks such as "breaking my phone, my laptop and mutilating my penis" in the portuguese language, and forced to pick between:
 
 
 1. returning to portugal being cybersodomized and genitally abused with my tongue being articulated in portuguese, where colegio militar alumni linked to pedro miguel de brito esteves grilo @psp induce psychosis in the physical vicinity of my parents to coerce me into psychiatric care as a humiliation, directing violence to my parents all day to gamble futures of suicide, homicide, incarceration of forced psychiatric care. 
