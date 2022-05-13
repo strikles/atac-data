@@ -104,7 +104,7 @@ Estes indivíduos agem por meio de associados criminosos recrutados tais como jo
 O procedimento é ocultado com negligência médica via fraude psiquiátrica e falsa terapia (na forma de farmacoterapia convencional forçada, com alto risco de suicídio) quando o mesmo meio usado para executar cibertortura podia fornecer terapia real. em vez disso, angariam sentimentos de paranoia em relação à biofotônica, assistência médica remota, engenharia neural e medicina bioelétrica (onde o risco de suicídio seria insignificante)
 
 
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jesus/imaculate_heart.png"></p>
+<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/psychiatrists/psychiatrists.gif"></p>
 
 
 O governo nega-nos neuro direitos, enquanto um inferno sintético é criado como um circo psiquiátrico demoníaco, onde a vida é apostada com cibertura vibro tátil para induzir psicose sintética e sentimentos de auto-mutilação em um espetáculo interativo, onde os participantes se transformam apostam com a vida de suas vítimas, em jogos suicidas tipo "snuff show", que inspiram tanto ódio e raiva entre a população e que são das razões que levaram à guerra na ucrânia.
