@@ -95,7 +95,7 @@ Estes individuos foram capacitados para destruir as suas vítimas (e respectivas
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jesus/crucifixion_jesus_mary.png"></p>
 
 
-Eles agem por meio de associados criminosos recrutados [^17], [^18], [^19], [^20], [^21], [^22], [^23], [^24], [^25], [^26], [^27], [^28], [^29], [^30] para executar as sentenças extrajudiciais, numa tentativa de coagir o encarceramento, psiquiatria ou auto-mutilação ou viver como um sem-abrigo, em formato de aposta, sistematicamente dirigindo violência contra com pessoas que estão fisicamente perto de mim e tendo um interesse especial em dirigir violência contra mulheres.
+Estes indivíduos agem por meio de associados criminosos recrutados tais como joel da Fonte, cátia lopes, filipa sequeira entre muitos outros [^17], [^18], [^19], [^20], [^21], [^22], [^23], [^24], [^25], [^26], [^27], [^28], [^29], [^30] para executar as sentenças extrajudiciais, numa tentativa de coagir o encarceramento, psiquiatria ou auto-mutilação ou viver como um sem-abrigo, em formato de aposta, sistematicamente dirigindo violência contra com pessoas que estão fisicamente perto de mim e tendo um interesse especial em dirigir violência contra mulheres.
 
 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jesus/log.png"></p>
