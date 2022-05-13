@@ -11,7 +11,7 @@ O processo é encoberto com fraude psiquiátrica e farmacoterapia forçada contr
 para garantirem que acabe numa prisão ou num asilo, usando a rejeição de farmacoterapia forçada e falso testemunho como motivos justificativos do tratamento a que sou sujeito.
 
 
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/psychiatrists/emile.png"></p>
+<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/psychiatrists/2_emile.png"></p>
 
 
 Estes indivíduos estão sentados numa sala, todos os dias faz pelo menos 6 anos este verão, acordando-me diariamente a meio da noite para tentarem forcar-me a mutilar-me, bater em mim próprio ou partir tudo o que tenho, abusando de biofotônica e revezando-se na articulação de línguas (remotamente) e cibertortura vibro tátil para forçar as pessoas a falarem sozinhas, baterem em si próprias, tentando forçar a psicose sintética em suas vítimas, sempre que estão perto de outras pessoas, para usá-las como alvos de violência direcionada. esses alvos podem ser pais idosos no final da vida, mulheres, crianças e até pessoas com deficiência. 
@@ -118,7 +118,7 @@ O governo nega-nos neuro direitos, enquanto um inferno sintético é criado como
 A cibertortura é reconhecida pelas nações unidas (a/hrc/43/49) e é usada em rituais de punição extrajudicial grotescos para fins de estratificação social, criando violência doméstica, sem abrigo e suicídios em formato de espetáculo interativo, incentivando a participação. Até que legislação neuro direitos seja aprovada, é provável que continue vendo mais e mais sem-abrigo falando sozinhos nas ruas, cenas de violência doméstica, violência contra idosos e pessoal médico nos suas televisores com várias famílias sendo destruídas em rituais sádicos de ostentação de controle sobre a fisiologia alheia, via abuso de biofotônica, fotoacústica e termoacústica para executar sentenças extrajudiciais remotamente.
 
 
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/books/homo_sovieticus.png"></p>
+<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/books/0_homo_sovieticus.png"></p>
 
 
 * diga sim aos neuro direitos
