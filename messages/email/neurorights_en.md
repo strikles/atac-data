@@ -1,7 +1,7 @@
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jesus/jesus_king.png"></p>
 
 
-Both my father and my father worked for 3 decades as judicial clerks in portuguese courts, to be used, at the end of their lifes, as targets against which to direct violence.
+Both my father and my father worked for 3 decades as judicial clerks in portuguese courts, to be used, at the end of their life, as targets against which to direct violence.
 
 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/matthew_puncher.png"></p>
@@ -88,7 +88,7 @@ For refusing to leave colegio militar in 1993 when invited and by threatening ex
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jesus/monk.png"></p>
 
 
-Several of the sadists recruited ones have fun forcing their victims to feel sexually abused and sodomized, providing useful loads vibro rotten "kisses of death" to the head of their victims, while trying to force their victims to hurt themselves repeatedly in front of an audience, like poets of death and human degradation.
+Several of the sadists recruited have fun forcing their victims to feel sexually abused and sodomized, providing rotten vibrotactile payloads of "kisses of death" to the head of their victims, while trying to force their victims to hurt themselves repeatedly in front of an audience, like poets of death and human degradation.
 
 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/others/jasper_kums.png"></p>
