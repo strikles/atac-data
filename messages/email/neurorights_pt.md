@@ -4,19 +4,7 @@
 O meu pai trabalhou quase 3 décadas como funcionário judicial em tribunais portugueses, para no final da vida, ser usado como alvo contra o qual dirigir violência por vários ex-alunos do colégio militar (largo da luz, Lisboa, Portugal) ligados a Rui Gonçalo Pires Pintado, Pedro Miguel de Brito Esteves Grilo @PSP e associados criminosos de Jose Teixeira (Bar Crew Hassan), Tiago Jorge Roque, Gonçalo Bandeira Duarte, Ivo Francisco, Arthur Moreno, Carla Maria Marinho Rodrigues, Luis Muskiado, um cabo verdiano conhecido como "Calo", Tania Borboleta e muitos outros, enquanto membros eleitos do governo ficam a ver o espetáculo de me tentarem forçar para uma prisão ou ala psiquiátrica com tortura cibernética vibro tátil para induzir psicose, e me fazerem passar por um doente mental esquizofrénico em formato de espetáculo interativo, que dura desde 2015-2016 para forcar-me a perder a casa, bater em mim próprio e voltar para Portugal com uma sentença de tiques sintéticos, sodomizado e com a língua articulada com palavras na língua portuguesa para cometer suicídio em frente a minha mãe ou ser internado num hospital psiquiátrico como humilhação.
 
 
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/others/muskiado.png"></p>
-
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/others/paulinho.png"></p>
-
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/others/jose_teixeira.png"></p>
-
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/others/goncalo_duarte.png"></p>
-
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/others/tiago_roque.png"></p>
-
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/others/mazivo.png"></p>
-
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/others/joao_leiria.png"></p>
+<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/others/others.gif"></p>
 
 
 O processo é encoberto com fraude psiquiátrica e farmacoterapia forçada contra minha vontade pelo diretor do Arkin FACT - Emile Barkhof enquanto Luis Muskiado e associados criminosos ex-alunos do colégio militar curam um estado de psicose permanente em formato de sentença extrajudicial e articulam a minha língua com as palavras "psiquiatra", "psiquiatria" e "medicação" enquanto me sodomizam e torturam genitalmente para acumularem ódio e dirigirem violência contra psiquiatras e pessoal médico
@@ -53,21 +41,7 @@ Eles indivíduos apresentam-se como artistas de degradação humana, estratifica
 Estes indivíduos estão conectados a ricardo rebordão de brito [^1], rui goncalo pires pintado [^2], luis nazareth carvalho figueira [^3], pedro miguel de brito esteves grilo [^4], joão filipe saraiva pinheiro [^5], pedro de queiroz antão [^6], ricardo carril [^7], paulo jorge varanda [^8], frederico ferronha [^19], oscar ferreira [^10], thyago picco [^11], rui ricardo borges marquessabino reino [^12], pedro nuno da silva rocha [^13], tito eurico miranda fernandes [^14], frederico leitão e carlos anselmo simões.
 
 
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/rrb.png"></p>
-
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/oscar_ferreira.png"></p>
-
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/rui_pintado.png"></p>
-
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/luis_figueira.png"></p>
-
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/pedro_grilo.png"></p>
-
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/jfsp.png"></p>
-
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/pedro_antao.png"></p>
-
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/ricardo_carrilho.png"></p>
+<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/alumni.gif"></p>
 
 
 Outros ex -alunos do colégio militar estão ligados a estrelas da música famosas que você conhece: adolfo luxúria canibal [^15] e manuel joão vieira [^16]
@@ -117,6 +91,7 @@ Vários dos sádicos recrutados divertem-se forçando as suas vítimas a se sent
 
 Estes individuos foram capacitados para destruir as suas vítimas (e respectivas famílias se necessário) por agentes da autoridade e membros eleitos do governo, e forçam as suas vítimas a sentirem-se abusadas sexualmente a fim de forçar a submissão psiquiátrica com síndroma de Van Gogh simulado, em formato de ameaça, enquanto simultaneamente geram conteúdo de degradação humana para um espetáculo interativo de circuito fechado, incentivando a participação, para que os jogadores se revezem executando as sentenças extrajudiciais de tortura cibernética, articulando línguas e fornecendo punição vibro tátil e dor sintética para simular psicoses e outras doenças do foro psiquiátrico.
 
+
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jesus/crucifixion_jesus_mary.png"></p>
 
 
@@ -137,9 +112,7 @@ O governo nega-nos neuro direitos, enquanto um inferno sintético é criado como
 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jesus/adam_tree_of_life.png"></p>
 
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/politicians/eduardo_marcal_grilo.png"></p>
-
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/martiniano_nuno_goncalves.png"></p>
+<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/politicians/politicians.gif"></p>
 
 
 A cibertortura é reconhecida pelas nações unidas (a/hrc/43/49) e é usada em rituais de punição extrajudicial grotescos para fins de estratificação social, criando violência doméstica, sem abrigo e suicídios em formato de espetáculo interativo, incentivando a participação. Até que legislação neuro direitos seja aprovada, é provável que continue vendo mais e mais sem-abrigo falando sozinhos nas ruas, cenas de violência doméstica, violência contra idosos e pessoal médico nos suas televisores com várias famílias sendo destruídas em rituais sádicos de ostentação de controle sobre a fisiologia alheia, via abuso de biofotônica, fotoacústica e termoacústica para executar sentenças extrajudiciais remotamente.
@@ -156,6 +129,7 @@ A cibertortura é reconhecida pelas nações unidas (a/hrc/43/49) e é usada em 
 
 
 O processo de fazerem de mim um sem abrigo e encherem-me de dividas, dirigindo violência contra os meus pais chegando ao ponto de sabotarem o meu casamento com cibertortura para me fazerem passar por m doente mental é encoberto pelos psiquiatras Emile Barkhof e Sara Hoff que de de momento estão a tentar ocultar o processo de fazerem de mim um sem abrigo e forcarem o meu regresso a Portugal enquanto tentam transformar-me num psicopata para cometer suicídio em frente á minha mãe.
+
 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jesus/mary.png"></p>
 
