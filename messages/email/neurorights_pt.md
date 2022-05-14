@@ -89,7 +89,7 @@ Vários dos sádicos recrutados divertem-se forçando as suas vítimas a se sent
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jesus/monk.png"></p>
 
 
-Estes individuos foram capacitados para destruir as suas vítimas (e respectivas famílias se necessário) por agentes da autoridade e membros eleitos do governo, e forçam as suas vítimas a sentirem-se abusadas sexualmente a fim de forçar a submissão psiquiátrica com síndroma de Van Gogh simulado, em formato de ameaça, enquanto simultaneamente geram conteúdo de degradação humana para um espetáculo interativo de circuito fechado, incentivando a participação, para que os jogadores se revezem executando as sentenças extrajudiciais de tortura cibernética, articulando línguas e fornecendo punição vibro tátil e dor sintética para simular psicoses e outras doenças do foro psiquiátrico.
+Este grupo de indivíduos foram capacitados para destruir as suas vítimas (e respectivas famílias se necessário) por agentes da autoridade e membros eleitos do governo, e forçam as suas vítimas a sentirem-se abusadas sexualmente a fim de forçar a submissão psiquiátrica com síndroma de Van Gogh simulado, em formato de ameaça, enquanto simultaneamente geram conteúdo de degradação humana para um espetáculo interativo de circuito fechado, incentivando a participação, para que os jogadores se revezem executando as sentenças extrajudiciais de tortura cibernética, articulando línguas e fornecendo punição vibro tátil e dor sintética para simular psicoses e outras doenças do foro psiquiátrico.
 
 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jesus/crucifixion_jesus_mary.png"></p>
