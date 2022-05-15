@@ -15,10 +15,12 @@ The individuals recruited to exact the extrajudicial trials and sentences are li
 <p align="center" width="100%"><img class="person" src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/rrb.png"><img class="person" src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/others/paulinho.png"><img class="person" src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/others/muskiado.png"><img class="person" src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/others/jose_teixeira.png"><img class="person" src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/others/tiago_roque.png"><img class="person" src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/jfsp.png"></p>
 
 
-instead of denouncing these individuals Emile Barkhof is systematically attempting to coverup up the extrajudicial cybertorture procedure to perpetuate human degradation psychiatric spectacles trying to force me into psychiatry and forced pharmacotherapy at any cost to pass me as a schizophrenic and make an example out of me, presenting false testimony in a court of law, using falsified reports of risk to self and refusal to take medication against my will as justifications for the damages inflicted by the group of individuals recruited to exact the extrajudicial cybertorture sentences, sabotaging my ex-girlfriends plans to get wed, in a ritualistic psychiatric humiliation tantrum of articulating my tongue, sabotaging intercourse and getting me to hit myself in front of her. 
+instead of denouncing these individuals Emile Barkhof is systematically attempting to coverup up the extrajudicial cybertorture procedure to perpetuate human degradation psychiatric spectacles trying to force me into psychiatry and forced pharmacotherapy at any cost to pass me as a schizophrenic and make an example out of me, presenting false testimony in a court of law, using falsified reports of risk to self and refusal to take medication against my will as justifications for the damages inflicted by the group of individuals recruited to exact the extrajudicial cybertorture sentences, **sabotaging my ex-girlfriends plans to get wed**, in a ritualistic psychiatric humiliation tantrum of articulating my tongue, sabotaging intercourse and getting me to hit myself in front of her. 
 
 
 <p align="center" width="100%"><img class="person" src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/psychiatrists/2_emile.png"></p>
+
+<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/us.png"></p>
 
 
 colegio militar (largo da luz, lisbon, portugal) alumni linked to pedro miguel de brito esteves grilo @psp, rui gonçalo pires pintado, and recruited criminal associates of jose teixeira (bar crew hassan), tiago jorge roque, gonçalo bandeira duarte, ivo francisco, arthur moreno, carla maria marinho rodrigues, luskiado, a capoverdian known as "calo", tania borboleta and many others, incarnate colonialism time demons by spending their days abusing biophotonics to exact cybertorture trials and sentences for everything in the book with a main focus on xenophobia, inducing synthetic states of psychosis, forcing me into roaming the streets since they wake me up daily, in the middle of the night or early in the morning, with vibrotactile cybertorture.
@@ -134,8 +136,6 @@ until neurorights legislation is approved, it is likely to continue seeing more 
 
 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jesus/rafael.png"></p>
-
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/us.png"></p>
 
 
 * say yes to neuro rights
