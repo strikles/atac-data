@@ -1,10 +1,27 @@
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jesus/jesus_king.png"></p>
 
 
-Both my father and my father worked for 3 decades as judicial clerks in portuguese courts, to be used, at the end of their life, as targets against which to direct violence, by multiple criminal associates of Jasper Kums and colegio militar alumni linked to João Filipe Saraiva Pinheiro and Pedro Miguel de Brito Esteves Grilo @PSP, exacting extrajudicial trials and sentences abusing biophotonics to exact cybertorture trying to pass me as being xenophobic, homophobic, a rapist and a pedo as an interactive spectacle encouraging participation, systematically attempting to induce psychosis in front of women and my parents to use them as targets of directed violence and force me into a jail cell, a psychiatric asylum or returning to portugal whilst being cybersodomized with my tongue being articulated in portuguese.
+Both my mother and my father worked for 3 decades as judicial clerks in portuguese courts, to be used, at the end of their life, as targets against which to direct violence by cowardly colegio militar alumni and criminal associates of Jasper Kums trying to force me to return to Portugal pass me as a paranoid schizophrenic, in a ritual of waking me up daily, in the middle of the night between 5-7am, abusing biophotonics to exact vibrotactile cybertoture and watch me break everything I own to force me into debt and make me lose my home. 
 
 
 <p align="center" width="100%"><img class="person" src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/others/jasper_kums.png"></p>
+
+
+Jasper Kums (my former employer at Eenvoud Media - now renamed to Eenvoud Agency as an attempt to divert attention to his criminal association to the individuals executing the extrajudicial workplace revenge punishment) and his criminal associates have preferencial treatment by Netherlands Law enforcement who seem more interested in doing his biddings and sabotaging everything I do, all day long with a cybertorture vibotactile sentence, trying to gamble self-harm, enforced every few seconds to give me synthetic tics and facial spasms whilst sodomizing me and articulating my tongue with the words "psychiatrist", "psychiatry" and "medication" to coerce psychiatric care as a humiliation, trying to pass me as an incompetent paranoid schizophrenic, perpetuating human degradation closed circuit interactive spectacles and social stratification schemes.
+,
+
+<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/narcostate.png"></p>
+
+
+"Selective law enforcement" is the reason why the Netherlands has a reputation of being a narco-state, with police doing the bidding of those close to them (nationals, relatives, etc) and turning a blind eye, or even cooperating with a number of criminal activities including:
+
+* the execution of extrajudicial trials and sentences, in rituals of ostentating control of physiological functions of others (e.g. remotely articulating tongues, issuing sentences of synthetic pain and inducing synthetic states of psychosis near your loved ones or family members to coerce psychiatric care with delusional megalomaniac plots of turning people into homeless drug addicts and forcing them into a prison cell, a psychiatric asylum or a grave as a gamble).
+
+* narcotraffic of class A narcottics which you can find on public groups of chat applications like "whatsapp" and "telegram" without cyber units taking any action. Given the level of expertise of Jasper Kums in software development and IT (must be so increadibly high he decided to pass me as an incompetent paranoid schizophrenic in a macabre ritual of exacting vibrotactile cybertorture and articulating my tongue since 2016 to force me into a prison cell, a psychiatric asylum or back to Portugal).
+
+
+<p align="center" width="100%"><img class="person" src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/jfsp.png"><img class="person" src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/pedro_grilo.png"></p>
+
 
 <p align="center" width="100%"><img class="person" src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/jfsp.png"><img class="person" src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/pedro_grilo.png"></p>
 
