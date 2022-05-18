@@ -23,9 +23,6 @@ Jasper Kums (my former employer at Eenvoud Media - now renamed to Eenvoud Agency
 <p align="center" width="100%"><img class="person" src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/jfsp.png"><img class="person" src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/pedro_grilo.png"></p>
 
 
-<p align="center" width="100%"><img class="person" src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/jfsp.png"><img class="person" src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/pedro_grilo.png"></p>
-
-
 The individuals recruited to exact the extrajudicial trials and sentences are linked to Tiago Santos Sousa, Ricardo Rebordão de Brito, Ivo Francisco, Eduardo Metzner, Luis Muskiado and criminal associates, with with psychiatrist Emile Barkhof visiting the location where these individuals are, suicide fighting champion Eefje Suk presenting false testimony in a court of law regarding "risk to self", and psychiatrist Sara Hoff forcing herself into my home without consent or an appointment trying to coerce me into accepting a falsified diagnosis of paranoid schizophrenia and a sentence of forced pharmacotherapy against my will to hide the extrajudicial sentence.
 
 
@@ -40,7 +37,7 @@ instead of denouncing these individuals Emile Barkhof is systematically attempti
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/us.png"></p>
 
 
-colegio militar (largo da luz, lisbon, portugal) alumni linked to pedro miguel de brito esteves grilo @psp, rui gonçalo pires pintado, and recruited criminal associates of jose teixeira (bar crew hassan), tiago jorge roque, gonçalo bandeira duarte, ivo francisco, arthur moreno, carla maria marinho rodrigues, luskiado, a capoverdian known as "calo", tania borboleta and many others, incarnate colonialism time demons by spending their days abusing biophotonics to exact cybertorture trials and sentences for everything in the book with a main focus on xenophobia, inducing synthetic states of psychosis, forcing me into roaming the streets since they wake me up daily, in the middle of the night or early in the morning, with vibrotactile cybertorture.
+colegio militar (largo da luz, lisbon, portugal) alumni linked to pedro miguel de brito esteves grilo @psp, rui gonçalo pires pintado, and recruited criminal associates of jose teixeira (bar crew hassan), tiago jorge roque, gonçalo bandeira duarte, ivo francisco, arthur moreno, carla maria marinho rodrigues, luis muskiado, a capoverdian known as "calo", tania borboleta and many others, incarnate colonialism time demons by spending their days abusing biophotonics to exact cybertorture trials and sentences for everything in the book with a main focus on xenophobia, inducing synthetic states of psychosis, forcing me into roaming the streets since they wake me up daily, in the middle of the night or early in the morning, with vibrotactile cybertorture.
 
 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jesus/jesus_lamb.png"></p>
@@ -55,8 +52,10 @@ They engage in a daily ritual of articulating my tongue with the words "psychiat
 Simultaneously, dutch psychiatrist Emile Barkhof (who has visited the location where this group of individuals exact their extrajudicial cybertorture sentences) along with elected government officials who watch the human degradation spectacle and instead of denouncing it on the news, or reporting it to the police, watch the macabre spectacle as a "casa dos degredos" blue whale style suicide game similar to mathew puncher's soviet-style murder, where I am issued tasks such as "breaking my phone, my laptop and mutilating my penis" in the portuguese language, and forced to pick between:
 
 
-* returning to portugal being cybersodomized and genitally abused with my tongue being articulated in portuguese, where colegio militar alumni linked to pedro miguel de brito esteves grilo @psp induce psychosis in the physical vicinity of my parents to coerce me into psychiatric care as a humiliation, directing violence to my parents all day to gamble futures of suicide, homicide, incarceration of forced psychiatric care. 
+* returning to portugal being cybersodomized and genitally abused with my tongue being articulated in portuguese, where colegio militar alumni linked to pedro miguel de brito esteves grilo @psp induce psychosis in the physical vicinity of my parents to coerce me into psychiatric care as a humiliation, directing violence to my parents all day to gamble futures of suicide, homicide, incarceration of forced psychiatric care.
+
 * staying in the netherlands and being forced into a psychiatric asylum under "assisted living" after losing my home with Eefje Suk, Emile Barkhof and Sara Hoff presenting falsified opinions in a court of law of rejection of pharmacotherapy and "risk to self" to coerce psychiatric care and forced pharmacotherapy against my will instead of denouncing the individuals above along with their location.
+
 * being forced into a jail cell and losing my home and my freedom whilst being abused to induce psychosis with people around me being used as targets of directed violence.
 
 
@@ -153,7 +152,7 @@ The very same technological means used to exact cybertorture extrajudicial sente
 <p align="center" width="100%"><img alt="Good" src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/movies/mission.gif"></p>
 
 
-governments worldwide (except for chile) are still denying us neurorights, while a synthetic hell is created as a demonic psychiatric circus, where life is gambled by inducing psychotic states and psychotic behavior in an interactive spectacle of "bursting the psychosis bubble" with, in necropolitics games which inspire so much confusion, hatred and anger amongst the population, and which are one of the reasons that led to the current war in the ukraine.
+governments worldwide (except for chile) are still denying us neurorights, while a synthetic hell is created as a demonic psychiatric circus, where life is gambled by inducing psychotic states and psychotic behavior in an interactive spectacle of "bursting the psychosis bubble", in necropolitics games which inspire so much confusion, hatred and anger amongst the population, and which are one of the reasons that led to the current war in the ukraine.
 
 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jesus/adam_tree_of_life.png"></p>
