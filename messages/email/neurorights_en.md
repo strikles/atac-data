@@ -1,7 +1,7 @@
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jesus/jesus_king.png"></p>
 
 
-Both my mother and my father worked for 3 decades as judicial clerks in portuguese courts, to be used, at the end of their life, as targets against which to direct violence by cowardly colegio militar alumni and criminal associates of Jasper Kums trying to force me to return to Portugal pass me as a paranoid schizophrenic, in a ritual of waking me up daily, in the middle of the night between 5-7am, abusing biophotonics to exact vibrotactile cybertoture and watch me break everything I own to force me into debt and make me lose my home. 
+Both my mother and my father worked for 3 decades as judicial clerks in portuguese courts, to be used, at the end of their life, as targets against which to direct violence by cowardly colegio militar alumni and criminal associates of Jasper Kums trying to force me to return to Portugal, pass me as a paranoid schizophrenic, in a ritual of waking me up daily, in the middle of the night between 5-7 am, abusing biophotonics to exact vibrotactile cybertoture and watch me break everything I own to force me into debt and make me lose my home. 
 
 
 <p align="center" width="100%"><img class="person" src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/others/jasper_kums.png"></p>
