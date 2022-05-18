@@ -1,37 +1,35 @@
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jesus/jesus_king.png"></p>
 
 
-Both my mother and my father worked for 3 decades as judicial clerks in portuguese courts, to be used, at the end of their life, as targets against which to direct violence by cowardly colegio militar alumni and criminal associates of Jasper Kums trying to force me to return to Portugal, lose my home and pass me as a paranoid schizophrenic force me waking me up in the middle of the night between 5-7am execting virbotactile abusing biophotonics to exact vibrotactile cybertoture and watch me break everything I own to force me into debt and make me lose my home. 
+Both my mother and my father worked for 3 decades as judicial clerks in portuguese courts, to be used, at the end of their life, as targets against which to direct violence by cowardly colegio militar alumni and criminal associates of Jasper Kums trying to force me to return to Portugal pass me as a paranoid schizophrenic, in a ritual of waking me up daily, in the middle of the night between 5-7am, abusing biophotonics to exact vibrotactile cybertoture and watch me break everything I own to force me into debt and make me lose my home. 
 
 
 <p align="center" width="100%"><img class="person" src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/others/jasper_kums.png"></p>
 
 
-Jasper Kums (my former employer at Eenvoud Media - now renamed to Eenvoud Agency as an attempt to divert attention to his wrong doings) and his criminal associates have preferencial treatment by Netherlands Law enforcement who seem more interested in doing his bidding and sabotaging everything I do, all day long with a cybertorture vibotactile sentence, trying to gamble self-harm, enforced every few seconds to give me synthetic tics, facial spasms whilst sodomizing me and articulating my tongue to coerce psychiatric care as a humiliation, trying to pass me as an incompetent paranoid schizophrenic, as work place revenge, perpetuating human degradation closed circuite interactive spectacles and social stratification schemes.
-
+Jasper Kums (my former employer at Eenvoud Media - now renamed to Eenvoud Agency as an attempt to divert attention to his criminal association to the individuals executing the extrajudicial workplace revenge punishment) and his criminal associates have preferencial treatment by Netherlands Law enforcement who seem more interested in doing his biddings and sabotaging everything I do, all day long with a cybertorture vibotactile sentence, trying to gamble self-harm, enforced every few seconds to give me synthetic tics and facial spasms whilst sodomizing me and articulating my tongue with the words "psychiatrist", "psychiatry" and "medication" to coerce psychiatric care as a humiliation, trying to pass me as an incompetent paranoid schizophrenic, perpetuating human degradation closed circuit interactive spectacles and social stratification schemes.
+,
 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/narcostate.png"></p>
 
 
-"Selective law enforcement" is the reason why the Netherlands has a reputation of being a narcostate, with police doing the bidding of those close to them (nationals, relatives, etc) and turning a blind eye, or even cooperating with a number of criminal activities including:
+"Selective law enforcement" is the reason why the Netherlands has a reputation of being a narco-state, with police doing the bidding of those close to them (nationals, relatives, etc) and turning a blind eye, or even cooperating with a number of criminal activities including:
 
-* the execution of extrajudicial trials and sentences, in rituals of ostentating control of physiological functions of others (e.g. remotely articulating tongues, issuing sentences of synthetic pain and inducing synthetic states of psychosis near your loved ones or family members to coerce psychiatric care with delusional megalomaniac plots of turning people into homeless drug addicts).
-* narcotraffic of class A narcottics which you can find on public groups of chat applications like whatsapp and telegram.
+* the execution of extrajudicial trials and sentences, in rituals of ostentating control of physiological functions of others (e.g. remotely articulating tongues, issuing sentences of synthetic pain and inducing synthetic states of psychosis near your loved ones or family members to coerce psychiatric care with delusional megalomaniac plots of turning people into homeless drug addicts and forcing them into a prison cell, a psychiatric asylum or a grave as a gamble).
+
+* narcotraffic of class A narcottics which you can find on public groups of chat applications like "whatsapp" and "telegram" without cyber units taking any action. Given the level of expertise of Jasper Kums in software development and IT (must be so increadibly high he decided to pass me as an incompetent paranoid schizophrenic in a macabre ritual of exacting vibrotactile cybertorture and articulating my tongue since 2016 to force me into a prison cell, a psychiatric asylum or back to Portugal).
 
 
 <p align="center" width="100%"><img class="person" src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/jfsp.png"><img class="person" src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/pedro_grilo.png"></p>
 
 
-Multiple criminal associates of Jasper Kums (including members of the netherlands police force) and colegio militar alumni linked to **João Filipe Saraiva Pinheiro** and **Pedro Miguel de Brito Esteves Grilo** @PSP,
-
-
-The individuals recruited to exact the extrajudicial trials and sentences are linked to **Ricardo Rebordão de Brito**. Some of them are: Tiago Santos Sousa, Ivo Francisco, Eduardo Metzner, Luis Muskiado and criminal associates, with with psychiatrist Emile Barkhof visiting the location where these individuals are, **suicide fighting champion Eefje Suk** presenting false testimony in a court of law regarding "risk to self", and **psychiatrist Sara Hoff** forcing herself into my home without consent or an appointment trying to coerce me into accepting a falsified diagnosis of paranoid schizophrenia and a sentence of forced pharmacotherapy against my will to hide the extrajudicial sentence.
+The individuals recruited to exact the extrajudicial trials and sentences are linked to **Ricardo Rebordão de Brito**. Some of them are: Tiago Santos Sousa, Ivo Francisco, Eduardo Metzner, Luis Muskiado and multiple criminal associates of Jasper Kums (including members of the netherlands police force) and colegio militar alumni linked to **João Filipe Saraiva Pinheiro** and **Pedro Miguel de Brito Esteves Grilo** @PSP, with psychiatrist Emile Barkhof visiting the location where these individuals are, **suicide fighting champion Eefje Suk** presenting false testimony in a court of law regarding "risk to self", and **psychiatrist Sara Hoff** forcing herself into my home without consent or an appointment trying to coerce me into accepting a falsified diagnosis of paranoid schizophrenia and a sentence of forced pharmacotherapy against my will to hide the extrajudicial sentence.
 
 
 <p align="center" width="100%"><img class="person" src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/rrb.png"><img class="person" src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/others/paulinho.png"><img class="person" src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/others/muskiado.png"><img class="person" src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/others/jose_teixeira.png"><img class="person" src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/others/tiago_roque.png"></p>
 
 
-instead of denouncing these individuals **Emile Barkhof** is systematically attempting to coverup up the extrajudicial cybertorture procedure to perpetuate human degradation psychiatric spectacles trying to force me into psychiatry and forced pharmacotherapy at any cost to pass me as a schizophrenic and make an example out of me, presenting false testimony in a court of law, using falsified reports of risk to self and refusal to take medication against my will as justifications for the damages inflicted by the group of individuals recruited to exact the extrajudicial cybertorture sentences, **sabotaging my ex-girlfriends plans to get wed**, in a ritualistic psychiatric humiliation tantrum of articulating my tongue, sabotaging intercourse and getting me to hit myself in front of her. 
+instead of denouncing these individuals **Emile Barkhof** is systematically attempting to coverup up the extrajudicial cybertorture procedure to perpetuate human degradation psychiatric spectacles trying to force me into psychiatry and forced pharmacotherapy at any cost to pass me as a schizophrenic and make an example out of me, presenting false testimony in a court of law, using falsified reports of risk to self and refusal to take medication against my will as justifications for the damages inflicted by the group of individuals recruited to exact the extrajudicial cybertorture sentences, **sabotaging my ex-girlfriends plans to get wed**, in a ritualistic psychiatric humiliation tantrum of articulating my tongue, sabotaging intercourse and getting me to hit myself in front of my sweetheart who also happens to be a renal patient. 
 
 
 <p align="center" width="100%"><img class="person" src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/psychiatrists/2_emile.png"></p>
@@ -55,7 +53,9 @@ Simultaneously, dutch psychiatrist Emile Barkhof **(who has visited the location
 
 
 * returning to portugal being cybersodomized and genitally abused with my tongue being articulated in portuguese, where colegio militar alumni linked to pedro miguel de brito esteves grilo @psp induce psychosis in the physical vicinity of my parents to coerce me into psychiatric care as a humiliation, directing violence to my parents all day to gamble futures of suicide, homicide, incarceration of forced psychiatric care. 
+
 * staying in the netherlands and being forced into a psychiatric asylum under "assisted living" after losing my home with Eefje Suk, Emile Barkhof and Sara Hoff presenting falsified opinions in a court of law of rejection of pharmacotherapy and "risk to self" to coerce psychiatric care and forced pharmacotherapy against my will instead of denouncing the individuals above along with their location.
+
 * being forced into a jail cell and losing my home and my freedom whilst being abused to induce psychosis with people around me being used as targets of directed violence.
 
 
