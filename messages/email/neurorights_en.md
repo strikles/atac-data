@@ -8,9 +8,9 @@ Both my mother and my father worked for 3 decades as judicial clerks in portugue
 
 
 Jasper Kums (my former employer at Eenvoud Media - now renamed to Eenvoud Agency as an attempt to divert attention to his criminal association to the individuals executing the extrajudicial workplace revenge punishment) and his criminal associates have preferencial treatment by Netherlands Law enforcement who seem more interested in doing his biddings and sabotaging everything I do, all day long with a cybertorture vibotactile sentence, trying to gamble self-harm, enforced every few seconds to give me synthetic tics and facial spasms whilst sodomizing me and articulating my tongue with the words "psychiatrist", "psychiatry" and "medication" to coerce psychiatric care as a humiliation, trying to pass me as an incompetent paranoid schizophrenic, perpetuating human degradation closed circuit interactive spectacles and social stratification schemes.
-,
 
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/narcostate.png"></p>
+
+<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/narco_state.png"></p>
 
 
 "Selective law enforcement" is the reason why the Netherlands has a reputation of being a narco-state, with police doing the bidding of those close to them (nationals, relatives, etc) and turning a blind eye, or even cooperating with a number of criminal activities including:
