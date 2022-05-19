@@ -36,11 +36,11 @@ The criminal associates of **Jasper Kums** are linked to colegio militar alumni 
 The individuals recruited to exact the extrajudicial trials and sentences on behalf of Jasper Kums belong to several distinct but interconnected groups:
 
 
-* those linked to **Ivo Francisco** and **Luis Muskiado** and **Arthur Moreno**
+* those linked to **Ivo Francisco**, **Luis Muskiado** and **Arthur Moreno**
 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/tapada_do_mocho/tapada_do_mocho.gif"></p>
 
-* those linked to **Tiago Santos Sousa**
+* those linked to **Ivo Francisco**, **Tiago Santos Sousa** and **Pedro Caetano**
 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jardim_adamastor/jardim_adamastor.gif"></p>
 
