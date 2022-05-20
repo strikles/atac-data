@@ -3,7 +3,7 @@
 
 Both my **mother** and my **father** worked for **3 decades** as judicial clerks in various portuguese courts of law, working often until midnight, to be used, at the end of their life, as targets against which to direct violence by individuals exacting extrajudicial sentences of cybertorture, recruited at Jardim do Adamastor (lisbon) by elected government officials via colegio militar alumni at PSP linked to the presidency (e.g. Tito Eurico Miranda Fernandes, Jose Ricardo Nazareth Carvalho Figueira, Luis Nazareth Carvalho Figueira). 
 
-In order to force me to return to Portugal, against my will, to endure an even harsher extrajudicial punishment, they became criminally associated with my former employer  **Jasper Kums** to pass me as an incompetent paranoid schizophrenic with synthetic tics and facial spasms, **as workplace revenge**. Since 2016 ,these individuals wake me up daily in the middle of the night to simulate Van Gogh syndrome and articulate my tongue and jaw to get me to talk to myself in public and break everything I have, filling me with debt by forcing me to walk around looking for relief for their entertainment.
+In order to force me to return to Portugal, against my will, to endure an even harsher extrajudicial punishment, they became criminally associated with my former employer  **Jasper Kums** to pass me as an incompetent paranoid schizophrenic with synthetic tics and facial spasms, **as workplace revenge**. Since 2016, these individuals wake me up daily in the middle of the night to simulate Van Gogh syndrome and articulate my tongue and jaw to get me to talk to myself in public and break everything I have, filling me with debt by forcing me to walk around looking for relief for their entertainment.
 
 Elected government officials have been denying neurorights to the population for at least 3 decades, forcing the us to live in a pool of fear, mediocrity and human degradation, perpetuating:
 
@@ -11,6 +11,7 @@ Elected government officials have been denying neurorights to the population for
 * extrajudicial trials and sentences in the form of a human degradation spectacles encouraging participation.
 
 * narcotraffic by denying us equal access rights to augmentation technologies.
+
 * repetition of the same heinous crimes (rape, pedophilia, murder, domestic violence, narcotraffic of class A substances, etc..) filling courts of law with crime that could have been **prevented**
 
 * late work hours for public servants in the judicial system and law enforcement (who should leave work by 5-6 pm and instead work until 11-12 pm)
@@ -25,7 +26,7 @@ Criminal associates of **Jasper Kums** engage in a ritual of waking me up daily 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni_police/alumni_police.gif"></p>
 
 
-The criminal associates of **Jasper Kums** are linked to colegio militar alumni **Joao Filipe Saraiva Pinheiro**, **Pedro Miguel de Brito Esteves Grilo @PSP**, **Pedro Nuno da Silva Rocha**, **Luis Nazareth Carvalho Figueira**, **Andre Pardal** and multiple others issuing and executing an illegal and **extrajudicial sentence of simulated Van Gogh syndrome** (enforced by abusing biophotonics to exact vibrotactile cybertorture for denouncing them and running away to the Netherlands to escape their abuse) in an attempt to coerce me to return back to Portugal where they systematically direct violence towards my parents by inducing synthetic states of psychosis near them to force me into a prison cell, a psychiatric institution or a grave as a gamble.
+The criminal associates of **Jasper Kums** are linked to Netherlands police (possibly relatives) and colegio militar alumni **Joao Filipe Saraiva Pinheiro**, **Pedro Miguel de Brito Esteves Grilo @PSP**, **Pedro Nuno da Silva Rocha**, **Luis Nazareth Carvalho Figueira**, **Andre Pardal** (and multiple others recruited for the purpose), issuing and executing an illegal and **extrajudicial sentence of simulated Van Gogh syndrome** (enforced by abusing biophotonics to exact vibrotactile cybertorture for denouncing them and running away to the Netherlands to escape their abuse) in an attempt to coerce me to return back to Portugal where they systematically direct violence towards my parents by inducing synthetic states of psychosis near them to force me into a prison cell, a psychiatric institution or a grave as a gamble.
 
 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jesus/jesus_ti.png"></p>
