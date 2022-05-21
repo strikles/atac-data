@@ -13,7 +13,7 @@ Criminal associates of **Jasper Kums** engage in a ritual of waking me up daily 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jesus/jesus_lamb.png"></p>
 
 
-Both my **mother** and my **father** worked for **3 decades** as judicial clerks in various Portuguese courts of law, working often until midnight, to be used, at the end of their life, as targets against which to direct violence by individuals exacting extrajudicial sentences of cyber-torture, recruited at Jardim do Adamastor (Lisbon) by elected government officials via colegio militar alumni at PSP linked to the portuguese presidency (e.g. Tito Eurico Miranda Fernandes, Jose Ricardo Nazareth Carvalho Figueira, Luis Nazareth Carvalho Figueira, Tiago Goncalves - worked at Aegis insurance company and is the son of Martiniano Nuno Goncalves) and others like **Joao Filipe Saraiva Pinheiro** who is connected to the socialist party PS via his diplomat spouse and Pedro Miguel de Brito Esteves Grilo. Joao resided in China. His brother, Pedro Saraiva Pinheiro is former armed forces and works in the United States as a telecom engineer.
+Both my **mother** and my **father** worked for **3 decades** as judicial clerks in various Portuguese courts of law, working often until midnight, to be used, at the end of their life, as targets against which to direct violence by individuals exacting extrajudicial sentences of cyber-torture, recruited at Jardim do Adamastor (Lisbon) by elected government officials via colegio militar alumni at PSP linked to the portuguese presidency (e.g. Tito Eurico Miranda Fernandes, Jose Ricardo Nazareth Carvalho Figueira, Luis Nazareth Carvalho Figueira, Tiago Goncalves - his colegio militar alumni page states he worked at Aegis insurance company and is the son of Martiniano Nuno Goncalves) and others like **Joao Filipe Saraiva Pinheiro** who is connected to the socialist party PS via his diplomat spouse and Pedro Miguel de Brito Esteves Grilo. Joao resided in China. His brother, Pedro Saraiva Pinheiro is former armed forces and works in the United States as a telecom engineer.
 
 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/alumni.gif"></p>
@@ -102,7 +102,7 @@ Other individuals were recruited at Jardim Adamastor (next to Bairro Alto in Lis
 * "Não gostamos dele"
 * "Vai-te foder com essa conversa de merda"
 * "com quem te meteste"
-* "Nao te metas no nosso caminho" (as if they were turds making an advert to toilet cleaning products like Harpic or WC Pato).
+* "Nao te metas no nosso caminho" (meaning don't get in or way - subjugating whole families to fascism and psychiatric abuse - denying neurorights to the world population in a manner so putrid an repugnant the individual uttering those words sounds like a stool making an advert to toilet cleaning products like Harpic or WC Pato).
 
 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jesus/stella_maris.png"></p>
