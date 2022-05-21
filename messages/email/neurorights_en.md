@@ -102,7 +102,7 @@ Other individuals were recruited at Jardim Adamastor (next to Bairro Alto in Lis
 * "Não gostamos dele"
 * "Vai-te foder com essa conversa de merda"
 * "com quem te meteste"
-* "Nao te metas no nosso caminho" (meaning don't get in or way - subjugating whole families to fascism and psychiatric abuse - denying neurorights to the world population in a manner so putrid an repugnant the individual uttering those words sounds like a stool making an advert to toilet cleaning products like Harpic or WC Pato).
+* "Nao te metas no nosso caminho" (meaning don't get in or way - subjugating whole families to fascism and psychiatric abuse - denying neurorights to the world population in a manner so putrid and repugnant the individual uttering those words sounds like a stool making an advert to toilet cleaning products like Harpic or WC Pato).
 
 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jesus/stella_maris.png"></p>
