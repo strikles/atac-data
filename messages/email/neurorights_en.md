@@ -314,7 +314,6 @@ Some details worthy of your attention:
 
 ### footnotes:
 
-
 [^1]: https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/rrb.png
 [^2]: https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/rui_pintado.png
 [^3]: https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/luis_figueira.png
