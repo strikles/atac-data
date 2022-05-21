@@ -19,8 +19,6 @@ Colegio Militar alumni who graduated in 1993, and criminal associates linked to 
 Colegio Militar (largo da Luz, Lisbon, Portugal) alumni [^1], and recruited criminal associates [^2], [^3], [^4], [^5], [^6] are on a crusade to divert attention from their wrong doing with a strategy of "covering the world in shit" and incarnate **colonialism time demons**, diverting attention from their abuse in 1993, spending their days abusing bio-photonics to force their victims to *"understand how things work"*, forcing them to feel **raped systematically since 2016** to simulate mental illness, whilst exacting cyber-torture trials and sentences for everything "in the book".
 
 
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/psychiatry_above_god.png"></p>
-
 
 **Tito Eurico Miranda Fernandes** (a confirmed catholic) went as far as sabotaging phone calls with my mother and even prayer on Christmas day, based on the saying **the deeper the grief, the closer to god**, followed by keeping me away from church by having me tortured genitally on multiple occasions (with a psychotic and demonic idiot forcing me to feel like he was **playing marbles with my testicles** during a service inside a church .
 
