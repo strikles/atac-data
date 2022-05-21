@@ -1,7 +1,7 @@
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jesus/jesus_king.png"></p>
 
 
-Criminal associates of **Jasper Kums** engage in a ritual of waking me up daily since the summer of 2016, in the middle of the night between 5-7 am, abusing bio-photonics to exact vibrotactile cyber-torture and watch me break everything I own to force me into debt, make me lose my home, forcing me to roam around, articulating my tongue to get me kicked out of public places in my neighbourhood like: work desks (e.g. HNK Houthavens), coffee shops, or restaurants.
+Criminal associates of **Jasper Kums** engage in a ritual of waking me up daily since the summer of 2016, in the middle of the night between 5-7 am, abusing bio-photonics to exact vibrotactile cyber-torture and watch me break everything I own to force me into debt, make me lose my home, forcing me to roam around, articulating my tongue whilst I drool in rage out of the corner of my mouth (to the point I got a tongue piercing to mitigate suffering without wanting one), to get me kicked out of public places in my neighbourhood like: work desks (e.g. HNK Houthavens), coffee shops, or restaurants.
 
 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/others/jasper_kums.png"></p>
