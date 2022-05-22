@@ -4,8 +4,6 @@
 I fled Portugal more than once to avoid these extrajudicial sentences of the CM-93 Colegio Militar alumni group (and recruited criminal associates) as an interactive extrajudicial trials and sentences cyber-torture spectacle of abusing a medium that could be used to deliver therapy like bio-photonics (**thermo-acoustics** and **photo-acoustics** instead of social media to issue tasks).
 
 
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/tentacles.png"></p>
-
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni_police/alumni_police.gif"></p>
 
 
@@ -18,18 +16,16 @@ Both my **mother** and my **father** worked for **3 decades** as judicial clerks
 Colegio Militar alumni who graduated in 1993, and criminal associates linked to Luis Muskiado, Jose Teixeira, Joao Filipe Saraiva Pinheiro, Pedro Miguel de Brito Esteves Grilo @PSP, Oscar Ferreira, Tito Eurico Miranda Fernandes @PSP trying to coerce me to accept living under torture with pharmacotherapy being forced upon me as a sentence to hide the procedure in case of rejection as a extrajudicial sentence for non-sense conversations so they can show me "what being a motherfucker is" as a moral lesson, and occult the child abuse crimes the CM-93 group committed against me, along with the prologued sexual abuse crimes the CM-93 group committed against me and my parents.
 
 
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/tentacles.png"></p>
-
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jardim_adamastor/1_andres_castro.png"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jardim_adamastor/1_bicas.png"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jardim_adamastor/2_luis_muskiado.png"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jardim_adamastor/2_tania_boboleta.png"></p>
 
 
 Colegio Militar (largo da Luz, Lisbon, Portugal) alumni [^1], and recruited criminal associates [^2], [^3], [^4], [^5], [^6] are on a crusade to divert attention from their wrong doing with a strategy of **"covering the world in shit"** and incarnate **colonialism time demons**, diverting attention from their abuses in 1993, spending their days abusing bio-photonics to force their victims to *"understand how things work"*, forcing them to feel **raped systematically since 2016** to simulate mental illness, whilst exacting cyber-torture trials and sentences for everything "in the book".
 
 
-**Tito Eurico Miranda Fernandes** (a confirmed catholic) went as far as sabotaging phone calls with my mother and even prayer on Christmas day, based on the saying **the deeper the grief, the closer to god**, followed by keeping me away from church by having me tortured genitally on multiple occasions (with a psychotic and demonic idiot forcing me to feel like he was **playing marbles with my testicles** during a service inside a church .
-
-
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/octopus.png"></p>
+
+
+**Tito Eurico Miranda Fernandes** (a confirmed catholic) went as far as sabotaging phone calls with my mother and even prayer on Christmas day, based on the saying **the deeper the grief, the closer to god**, followed by keeping me away from church by having me tortured genitally on multiple occasions (with a psychotic and demonic idiot forcing me to feel like he was **playing marbles with my testicles** during a service inside a church .
 
 
 **IT"S A DEMONIC RITUAL OF PLACING PSYCHIATRY ABOVE GOD AND DENYING NEURORIGHTS AND BIOPHOTONICS TO US ALL TO FORCE CONVENTIONAL PHARMACOTHERAPY AND SATISFY PSYCHIATRIC AGENDAS FROM THE 80's AS SEEN IN DSM-V.!**
