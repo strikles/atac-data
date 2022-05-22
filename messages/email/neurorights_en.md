@@ -13,10 +13,14 @@ Both my **mother** and my **father** worked for **3 decades** as judicial clerks
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/oscar_ferreira.png"></p>
 
 
-Colegio Militar alumni who graduated in 1993, and criminal associates linked to Luis Muskiado, Jose Teixeira, Joao Filipe Saraiva Pinheiro, Pedro Miguel de Brito Esteves Grilo @PSP, Oscar Ferreira, Tito Eurico Miranda Fernandes @PSP trying to coerce me to accept living under torture with pharmacotherapy being forced upon me as a sentence to hide the procedure in case of rejection as a extrajudicial sentence for non-sense conversations so they can show me "what being a motherfucker is" as a moral lesson, and occult the child abuse crimes the CM-93 group committed against me, along with the prologued sexual abuse crimes the CM-93 group committed against me and my parents.
+**Luis Nazareth Carvalho Figueira** and Colegio Militar alumni who graduated in 1993, and criminal associates linked to **Luis Muskiado**, **Jose Teixeira**, along with alumni from 1988 (my year) like **Joao Filipe Saraiva Pinheiro**, **Pedro Miguel de Brito Esteves Grilo @PSP**, **Oscar Ferreira**, **Tito Eurico Miranda Fernandes @PSP** trying to coerce me to accept living under torture with pharmacotherapy being forced upon me as a sentence to hide the procedure in case of rejection as a extrajudicial sentence for non-sense conversations so they can show me "what being a motherfucker is" as a moral lesson, and occult the child abuse crimes the CM-93 group committed against me, along with the prologued sexual abuse crimes the CM-93 group committed against me and my parents.
 
 
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jardim_adamastor/1_andres_castro.png"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jardim_adamastor/1_bicas.png"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jardim_adamastor/2_luis_muskiado.png"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jardim_adamastor/2_tania_boboleta.png"></p>
+<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jardim_adamastor/1_andres_castro.png"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jardim_adamastor/1_bicas.png"></p>
+
+<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jardim_adamastor/2_luis_muskiado.png"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jardim_adamastor/2_tania_boboleta.png"></p>
+
+<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/musicians/1_pedro_silva.png"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/musicians/2_jose_teixeira.png"></p>
 
 
 Colegio Militar (largo da Luz, Lisbon, Portugal) alumni [^1], and recruited criminal associates [^2], [^3], [^4], [^5], [^6] are on a crusade to divert attention from their wrong doing with a strategy of **"covering the world in shit"** and incarnate **colonialism time demons**, diverting attention from their abuses in 1993, spending their days abusing bio-photonics to force their victims to *"understand how things work"*, forcing them to feel **raped systematically since 2016** to simulate mental illness, whilst exacting cyber-torture trials and sentences for everything "in the book".
@@ -28,7 +32,7 @@ Colegio Militar (largo da Luz, Lisbon, Portugal) alumni [^1], and recruited crim
 **Tito Eurico Miranda Fernandes** (a confirmed catholic) went as far as sabotaging phone calls with my mother and even prayer on Christmas day, based on the saying **the deeper the grief, the closer to god**, followed by keeping me away from church by having me tortured genitally on multiple occasions (with a psychotic and demonic idiot forcing me to feel like he was **playing marbles with my testicles** during a service inside a church .
 
 
-**IT"S A DEMONIC RITUAL OF PLACING PSYCHIATRY ABOVE GOD AND DENYING NEURORIGHTS AND BIOPHOTONICS TO US ALL TO FORCE CONVENTIONAL PHARMACOTHERAPY AND SATISFY PSYCHIATRIC AGENDAS FROM THE 80's AS SEEN IN DSM-V.!**
+**IT'S A DEMONIC RITUAL OF PLACING PSYCHIATRY ABOVE GOD AND DENYING NEURO-RIGHTS AND BIO-PHOTONICS TO US ALL TO FORCE CONVENTIONAL PHARMACO-THERAPY AND SATISFY PSYCHIATRIC AGENDAS FROM THE 80's AS SEEN IN DSM-V**
 
 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jesus/stella_maris.png"></p>
@@ -47,9 +51,6 @@ Often I overheard them complaining about a Netherlands "police officer" with a n
 
 
 **Jasper Kums** (my former employer at Eenvoud Media - now renamed to Eenvoud Agency in Amsterdam as an attempt to divert attention from his criminal association to the individuals executing the **extrajudicial workplace revenge punishment**) and his criminal associates have **preferential treatment by Netherlands Law enforcement**, who seem more interested in doing the bidding of an individual who consumes cocaine at work and attempts to this day to pass me as a pedo in criminal association with the CM-93 group who abused me as a child, than doing anything about his many criminal associates who spend their days since 2016 sabotaging everything I do, all day long, trying to gamble self-harm, enforced every few seconds to give me an extrajudicial sentence of **synthetic tics** and **facial spasms** whilst **cyber-sodomizing** me, and **articulating my tongue** with the words **"psychiatrist"**, **"psychiatry"** and **"medication"** to coerce psychiatric care **as a humiliation**, trying to pass me as an **incompetent paranoid schizophrenic**, perpetuating human degradation **closed circuit interactive spectacles** and **social stratification** schemes.
-
-
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/tentacles.png"></p>
 
 
 The individuals recruited by the CM-93 group to exact the extrajudicial trials and sentences on behalf of Jasper Kums belong to several distinct but interconnected groups, and are amongst the most dangerous in Portugal connected to law enforcement, the justice system and enabled by elected government officials to do their bidding, filling the news with synthetic cases of domestic violence, violence directed to medical personnel!
@@ -303,7 +304,7 @@ Some details worthy of your attention:
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jesus/mary.png"></p>
 
 
-### [^1] Colegio Militar alumni:
+[^1] Colegio Militar alumni:
 
 * Jose Ricardo Nazareth Carvalho Figueira
 * Luis Nazareth Carvalho Figueira
@@ -340,7 +341,7 @@ Some details worthy of your attention:
 * thyago picco
 
 
-### [^2] Tapada do Mocho:
+[^2] Tapada do Mocho:
 
 * gonçalo bandeira duarte (specialized in recruiting people and mongering hatred to exact extrajudicial punishement trying to pass me as a xenophobic, misogynistic, homophobe.
 * tiago jorge roque
@@ -348,12 +349,12 @@ Some details worthy of your attention:
 * ivo francisco
 
 
-### [^3] Friends of Ivo Francisco (recruited by Goncalo Bandeira Duarte):
+[^3] Friends of Ivo Francisco (recruited by Goncalo Bandeira Duarte):
 
 * Arthur Moreno (and his many locations)
 * Carla Maria Marinho Rodrigues
 
-### [^4] Musicians:
+[^4] Musicians:
 
 * Nuno Duarte
 * Adolfo luxuria cannibal
@@ -363,7 +364,7 @@ Some details worthy of your attention:
 * Pedro Caetano
 
 
-### [^5] some of the regulars at Jardim do Adamastor (Lisbon):
+[^5] some of the regulars at Jardim do Adamastor (Lisbon):
 
 * Luis Muskiado (who specializes in inducing psychosis with vibrotactile cybertorture to simulate van gogh syndrome)
 * a Capoverdian named Carlos - commonly known as "Calo" who specializes in torturing people genitally to gamble self-harm
@@ -375,17 +376,17 @@ Some details worthy of your attention:
 * Sara Lioness
 
 
-### [^6] Quby employees:
+[^6] Quby employees:
 
 * Goncalo Carvalho
 
 
-### [^7] Lux-Fragil former employees:
+[^7] Lux-Fragil former employees:
 
 * rui ricardo borges marque sabino reino and criminal associates
 
 
-### [^8] Arkin personnel
+[^8] Arkin personnel
 
 * Arjen Sutterland
 * Emile Barkhof
