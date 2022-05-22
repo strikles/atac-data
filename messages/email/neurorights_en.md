@@ -335,6 +335,7 @@ Some details worthy of your attention:
 * thyago picco
 
 
+### Footnotes:
 
 [^1]: Tapada do Mocho - gonçalo bandeira duarte (specialized in recruiting people and mongering hatred to exact extrajudicial punishement trying to pass me as a xenophobic, misogynistic, homophobe), tiago jorge roque, joao leiria, ivo francisco
 [^2]: Friends of Ivo Francisco (recruited by Goncalo Bandeira Duarte) - Arthur Moreno (and his access to many locations including REMAX property), Carla Maria Marinho Rodrigues
