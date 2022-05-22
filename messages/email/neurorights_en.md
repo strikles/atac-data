@@ -292,6 +292,7 @@ Some details worthy of your attention:
 * sons of Martiniano Nuno Gonçalves (Nuno and Tiago Goncalves. - the colegio militar alumni page states Tiago worked at Aegis (insurance company)
 * Andre Pardal
 * Bernardo Telles Correia
+* Pedro Ponte
 
 
 ### 1987:
