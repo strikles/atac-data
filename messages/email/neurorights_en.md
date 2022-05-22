@@ -26,13 +26,10 @@ Colegio Militar alumni who graduated in 1993, and criminal associates linked to 
 Colegio Militar (largo da Luz, Lisbon, Portugal) alumni [^1], and recruited criminal associates [^2], [^3], [^4], [^5], [^6] are on a crusade to divert attention from their wrong doing with a strategy of **"covering the world in shit"** and incarnate **colonialism time demons**, diverting attention from their abuses in 1993, spending their days abusing bio-photonics to force their victims to *"understand how things work"*, forcing them to feel **raped systematically since 2016** to simulate mental illness, whilst exacting cyber-torture trials and sentences for everything "in the book".
 
 
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/tentacles.png"></p>
-
-
 **Tito Eurico Miranda Fernandes** (a confirmed catholic) went as far as sabotaging phone calls with my mother and even prayer on Christmas day, based on the saying **the deeper the grief, the closer to god**, followed by keeping me away from church by having me tortured genitally on multiple occasions (with a psychotic and demonic idiot forcing me to feel like he was **playing marbles with my testicles** during a service inside a church .
 
 
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/tentacles.png"></p>
+<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/octopus.png"></p>
 
 
 **IT"S A DEMONIC RITUAL OF PLACING PSYCHIATRY ABOVE GOD AND DENYING NEURORIGHTS AND BIOPHOTONICS TO US ALL TO FORCE CONVENTIONAL PHARMACOTHERAPY AND SATISFY PSYCHIATRIC AGENDAS FROM THE 80's AS SEEN IN DSM-V.!**
@@ -50,15 +47,14 @@ Since 2016, these individuals wake me up daily in the middle of the night to sim
 Often I overheard them complaining about a Netherlands "police officer" with a name that sounds like "Fuller" acting like a real demonic idiot. I never met this Fuller or even know who he is...
 
 
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/tentacles.png"></p>
-
-
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/others/jasper_kums.png"></p>
 
 
 **Jasper Kums** (my former employer at Eenvoud Media - now renamed to Eenvoud Agency in Amsterdam as an attempt to divert attention from his criminal association to the individuals executing the **extrajudicial workplace revenge punishment**) and his criminal associates have **preferential treatment by Netherlands Law enforcement**, who seem more interested in doing the bidding of an individual who consumes cocaine at work and attempts to this day to pass me as a pedo in criminal association with the CM-93 group who abused me as a child, than doing anything about his many criminal associates who spend their days since 2016 sabotaging everything I do, all day long, trying to gamble self-harm, enforced every few seconds to give me an extrajudicial sentence of **synthetic tics** and **facial spasms** whilst **cyber-sodomizing** me, and **articulating my tongue** with the words **"psychiatrist"**, **"psychiatry"** and **"medication"** to coerce psychiatric care **as a humiliation**, trying to pass me as an **incompetent paranoid schizophrenic**, perpetuating human degradation **closed circuit interactive spectacles** and **social stratification** schemes.
 
+
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/tentacles.png"></p>
+
 
 The individuals recruited by the CM-93 group to exact the extrajudicial trials and sentences on behalf of Jasper Kums belong to several distinct but interconnected groups, and are amongst the most dangerous in Portugal connected to law enforcement, the justice system and enabled by elected government officials to do their bidding, filling the news with synthetic cases of domestic violence, violence directed to medical personnel!
 
@@ -130,8 +126,6 @@ In the year 2001, with my University degree complete I returned to Portugal, in 
 After finding a job as a web developer, on my first day of work I noticed a "mental leash" was being placed on me by my employer **Jasper Kums** and my mental privacy was being once again violated. He offered me a salary of 300 euros as a humiliation (same amount my father used to help me) followed by a Portuguese women forcing me to hear her mocking payloads, hinting at rumours being spread and criminal association with the very same group of individuals who systematically abused me and my parents. We rarely disagreed, but tensions were systematically raised, with Jasper Kums typing terms I googled at home in front of me, as if insinuating he was connected to law enforcement and knew what I was doing at home. 
 
 
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/tentacles.png"></p>
-
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/others/goncalo_carvalho.png"></p>
 
 
@@ -162,9 +156,6 @@ Elected government officials have been denying neuro-rights to the population fo
 * late work hours for public servants in the judicial system and law enforcement (who should leave work by 5-6 pm and instead work until 11-12 pm).
 
 
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/tentacles.png"></p>
-
-
 **"Selective law enforcement"** is the reason why the Netherlands has a reputation of being a **narco-state**, with police doing the bidding of those close to them (nationals, relatives, etc) and turning a blind eye, or even **cooperating** with a number of criminal activities including:
 
 
@@ -181,9 +172,6 @@ Elected government officials have been denying neuro-rights to the population fo
 
 
 The CM-93 group spend their days in a room, trying to induce psychosis, targeting head and genitalia in an alternate fashion, every few seconds, repeating phrases to articulate my tongue and jaw (whilst individuals linked to **Jasper Kums**, **Nuno Correia (CEO of Merkkurio Digital)**, **Carla Maria Marinho Rodrigues**, **Goncalo Carvalho** and the resident at **Van Diemenkade 44, Amsterdam**, Sjoerd) amongst others linked to **Goncalo Bandeira Duarte**, **Arthur Moreno**, **Luis Muskiado** use a peer-pressure strategy to coerce psychiatric care, which equates to acting in criminal association with Jasper Kums and the CM-93 group who sexually abused me as a child).
-
-
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/tentacles.png"></p>
 
 
 Some of these individuals linked to the CM-93 child abuse group like Jasper Kums engage in **"new-age orgies"** taking turns at articulating my tongue to gamble degolation and self-harm of head and genitalia, in alternate fashion, every few seconds by articulating my tongue with the phrase **"vai-te foder com esta conversa de merda"**, simulating Van Gogh syndrome as they if it was a normal social event to coerce psychiatric care.
@@ -229,12 +217,13 @@ Some individuals in the fields of **psychiatry**, **law enforcement** and **deci
 **Instead of promoting neuro-rights, crime prevention or remote healthcare, they advocate social stratification via abuse of bio-photonics (which provides higher therapeutic value than conventional pharmaco-"therapy" and could completely eradicate narco-traffic) for the purpose of extrajudicial trials and sentences, stratifying society with extrajudicial sentences of cognitive impairment, synthetic tics and facial spasms, tongue articulation, synthetic hyper-hydrosis, synthetic pain and even simulated Van Gogh syndrome enforced with vibrotactile cyber-torture, in closed circuit human degradation interactive spectacles, where they justify the behaviour of the subjects under torture with forged diagnosis of mental illness and refusal to accept pharmaco-"therapy"...**
 
 
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/tentacles.png"></p>
-
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/arkin.png"></p>
 
 
 Instead of denouncing these individuals, **Emile Barkhof** has systematically attempted to cover-up the extrajudicial cyber-torture extrajudicial sentences to coerce psychiatric care under the pretext of me being unable to work. Inadvertedly or not that aligns with the CM-93 child abuse group to divert attention from their abuse and perpetuate human degradation psychiatric spectacles trying to force me into psychiatry and forced pharmaco-"therapy" at any cost to **pass me as a incompetent schizophrenic** and **make an example out of me**.
+
+
+<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/tentacles.png"></p>
 
 
 Sadly Emile has **presented false testimony in a court of law**, used **falsified reports of risk to self** and **refusal to accept judicial sentences of conventional pharmaco-"therapy" against my will**, as justifications for the damages inflicted by the group of individuals linked to the CM-93 group recruited to exact the extrajudicial cyber-torture sentences, **sabotaging my ex-girlfriends plans to get wed**, in a **ritualistic psychiatric humiliation tantrum** of **articulating my tongue**, **sabotaging intercourse**, directing violence towards women and my parents and getting me to hit myself in public and in front of my sweetheart during Christmas.
@@ -264,8 +253,6 @@ Cyber-torture extrajudicial proceedings are hidden with falsified psychiatric di
  
 The field of bio-photonics could provide much higher therapeutic value than conventional pharmaco-"therapy" solutions, solving problems not only in the field of psychiatry, but in the field of medicine and interpersonal relations that are next to impossible to address with conventional solutions. Instead, feelings of paranoia are being raised towards bio-photonics, remote healthcare, neural engineering and bioelectric medicine (where the risk of suicide would be insignificant in comparison to conventional pharmaco-"therapy"). 
 
-
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/tentacles.png"></p>
 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/psychiatrists/2_emile.png"></p>
 
