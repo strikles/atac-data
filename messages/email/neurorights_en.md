@@ -23,10 +23,7 @@ Both my **mother** and my **father** worked for **3 decades** as judicial clerks
 <p align="center" width="100%"><img class="person" src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/musicians/1_pedro_silva.png"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/musicians/2_jose_teixeira.png"></p>
 
 
-Colegio Militar (largo da Luz, Lisbon, Portugal) alumni [^1], and recruited criminal associates [^2], [^3], [^4], [^5], [^6] are on a crusade to divert attention from their wrong doing with a strategy of **"covering the world in shit"** and incarnate **colonialism time demons**, diverting attention from their abuses in 1993, spending their days abusing bio-photonics to force their victims to *"understand how things work"*, forcing them to feel **raped systematically since 2016** to simulate mental illness, whilst exacting cyber-torture trials and sentences for everything "in the book".
-
-
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/octopus.png"></p>
+Colegio Militar (largo da Luz, Lisbon, Portugal) alumni, and recruited criminal associates [^1], [^2], [^3], [^4], [^5] are on a crusade to divert attention from their wrong doing with a strategy of **"covering the world in shit"** and incarnate **colonialism time demons**, diverting attention from their abuses in 1993, spending their days abusing bio-photonics to force their victims to *"understand how things work"*, forcing them to feel **raped systematically since 2016** to simulate mental illness, whilst exacting cyber-torture trials and sentences for everything "in the book".
 
 
 **Tito Eurico Miranda Fernandes** (a confirmed catholic) went as far as sabotaging phone calls with my mother and even prayer on Christmas day, based on the saying **the deeper the grief, the closer to god**, followed by keeping me away from church by having me tortured genitally on multiple occasions (with a psychotic and demonic idiot forcing me to feel like he was **playing marbles with my testicles** during a service inside a church .
@@ -72,9 +69,6 @@ The individuals recruited by the CM-93 group to exact the extrajudicial trials a
 **These groups of individuals engage in a daily ritual of articulating my tongue with the words "psychiatrist", "psychiatry" and "medication"** while cyber-sodomizing me and torturing me genitally to create a piling psychological antagonistic effect and monger hatred, **increasing the odds of directed violence towards psychiatrists and medical staff in a clinical scenario.**
 
 
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/tentacles.png"></p>
-
-
 The criminal associates of **Jasper Kums** are also linked to Netherlands police (possibly relatives) and recruited criminal offenders [^2], [^3], [^4], [^5], [^6] **issuing and executing an illegal sentence of losing everything I have and roaming the streets asking for spare change**, along with an **extrajudicial sentence of simulated Van Gogh syndrome** (enforced by abusing bio-photonics to exact vibrotactile cyber-torture for denouncing them and running away to the Netherlands to escape their abuse) in an attempt to coerce me to return back to Portugal where they systematically direct violence towards my parents by inducing synthetic states of psychosis whenever I am near them.
 
 
@@ -88,9 +82,6 @@ They focus on inducing synthetic states of psychosis, gambling destruction of al
 
 
 These individuals present themselves as **artists of human degradation**, **social stratification** and **self-inflicted harm**, with vibro-tactile and sonic payloads of **"kisses of death"** distorted, amplified and delivered to the brain mass of their victims, establishing simulated Van Gogh syndrome, synthetic pain, tongue and jaw articulation, cyber-sodomy, sexual sabotage in males (vibrotactile torture to induce forced contractions to the perineum) and sexual abuse in women (possibly resulting in Stockholm syndrome) as common in our society! 
-
-
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/tentacles.png"></p>
 
 
 They entertain themselves attempting to nurture addiction with synthetic pain, establishing cyber-sodomy as standard extrajudicial sentences, to force the victim to seek relief and complete issued tasks by abusing the photo-acoustic and thermo-acoustic effects. Some are linked to Portuguese celebrities you may know:
@@ -220,9 +211,6 @@ Some individuals in the fields of **psychiatry**, **law enforcement** and **deci
 Instead of denouncing these individuals, **Emile Barkhof** has systematically attempted to cover-up the extrajudicial cyber-torture extrajudicial sentences to coerce psychiatric care under the pretext of me being unable to work. Inadvertedly or not that aligns with the CM-93 child abuse group to divert attention from their abuse and perpetuate human degradation psychiatric spectacles trying to force me into psychiatry and forced pharmaco-"therapy" at any cost to **pass me as a incompetent schizophrenic** and **make an example out of me**.
 
 
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/tentacles.png"></p>
-
-
 Sadly Emile has **presented false testimony in a court of law**, used **falsified reports of risk to self** and **refusal to accept judicial sentences of conventional pharmaco-"therapy" against my will**, as justifications for the damages inflicted by the group of individuals linked to the CM-93 group recruited to exact the extrajudicial cyber-torture sentences, **sabotaging my ex-girlfriends plans to get wed**, in a **ritualistic psychiatric humiliation tantrum** of **articulating my tongue**, **sabotaging intercourse**, directing violence towards women and my parents and getting me to hit myself in public and in front of my sweetheart during Christmas.
 
 
@@ -304,7 +292,7 @@ Some details worthy of your attention:
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jesus/mary.png"></p>
 
 
-[^1] Colegio Militar alumni:
+[Colegio Militar alumni]()
 
 * Jose Ricardo Nazareth Carvalho Figueira
 * Luis Nazareth Carvalho Figueira
@@ -314,7 +302,6 @@ Some details worthy of your attention:
 * Andre Pardal
 * Bernardo Telles Correia
 * Pedro Ponte
-
 
 ### 1987:
 
@@ -335,60 +322,16 @@ Some details worthy of your attention:
 * frederico leitão
 * carlos anselmo simões
 
-
 #### 1989:
 
 * thyago picco
 
 
-[^2] Tapada do Mocho:
 
-* gonçalo bandeira duarte (specialized in recruiting people and mongering hatred to exact extrajudicial punishement trying to pass me as a xenophobic, misogynistic, homophobe.
-* tiago jorge roque
-* joao leiria
-* ivo francisco
-
-
-[^3] Friends of Ivo Francisco (recruited by Goncalo Bandeira Duarte):
-
-* Arthur Moreno (and his many locations)
-* Carla Maria Marinho Rodrigues
-
-[^4] Musicians:
-
-* Nuno Duarte
-* Adolfo luxuria cannibal
-* manuel joão vieira
-* Andrés Castro (aka DJ Dresh)
-* Jose Teixeira (bar Crew Hassan)
-* Pedro Caetano
-
-
-[^5] some of the regulars at Jardim do Adamastor (Lisbon):
-
-* Luis Muskiado (who specializes in inducing psychosis with vibrotactile cybertorture to simulate van gogh syndrome)
-* a Capoverdian named Carlos - commonly known as "Calo" who specializes in torturing people genitally to gamble self-harm
-* Tiago Santos Sousa
-* Joel da Fonte
-* Filipa Sequeira
-* Humberto Mota
-* Tania Borboleta
-* Sara Lioness
-
-
-[^6] Quby employees:
-
-* Goncalo Carvalho
-
-
-[^7] Lux-Fragil former employees:
-
-* rui ricardo borges marque sabino reino and criminal associates
-
-
-[^8] Arkin personnel
-
-* Arjen Sutterland
-* Emile Barkhof
-* Eefje Suk
-* Sara Hoff
+[^1]: Tapada do Mocho - gonçalo bandeira duarte (specialized in recruiting people and mongering hatred to exact extrajudicial punishement trying to pass me as a xenophobic, misogynistic, homophobe), tiago jorge roque, joao leiria, ivo francisco
+[^2]: Friends of Ivo Francisco (recruited by Goncalo Bandeira Duarte) - Arthur Moreno (and his access to many locations including REMAX property), Carla Maria Marinho Rodrigues
+[^3]: Musicians - Nuno Duarte, Adolfo Luxuria Cannibal, Manuel João Vieira, Andrés Castro (aka DJ Dresh), Jose Teixeira (bar Crew Hassan), Pedro Caetano
+[^4]: Regulars at Jardim do Adamastor (Lisbon) - Luis Muskiado (who specializes in inducing psychosis with vibrotactile cybertorture to simulate van gogh syndrome), Capoverdian named Carlos - commonly known as "Calo" who specializes in torturing people genitally to gamble self-harm, Tiago Santos Sousa, Joel da Fonte, Filipa Sequeira, Humberto Mota, Tania Borboleta, Sara Lioness
+[^5]: Quby employees - Goncalo Carvalho
+[^6]: Lux-Fragil former employees - rui ricardo borges marque sabino reino and criminal associates
+[^7]: Arkin personnel (Arjen Sutterland, Emile Barkhof, Eefje Suk, Sara Hoff)
