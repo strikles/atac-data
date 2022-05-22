@@ -16,9 +16,17 @@ Both my **mother** and my **father** worked for **3 decades** as judicial clerks
 **Luis Nazareth Carvalho Figueira** and Colegio Militar alumni who graduated in 1993, and criminal associates linked to **Luis Muskiado**, **Jose Teixeira**, along with alumni from 1988 (my year) like **Joao Filipe Saraiva Pinheiro**, **Pedro Miguel de Brito Esteves Grilo @PSP**, **Oscar Ferreira**, **Tito Eurico Miranda Fernandes @PSP** trying to coerce me to accept living under torture with pharmacotherapy being forced upon me as a sentence to hide the procedure in case of rejection as a extrajudicial sentence for non-sense conversations so they can show me "what being a motherfucker is" as a moral lesson, and occult the child abuse crimes the CM-93 group committed against me, along with the prologued sexual abuse crimes the CM-93 group committed against me and my parents.
 
 
-<p align="center" width="100%"><img class="person" src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/musicians/1_andres_castro.png"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jardim_adamastor/1_bicas.png"></p>
+This group of individuals sits in a home all day articulating my tongue trying to force me to cut off my throat and mutilate my ears, head and genitalia whilst they smoke cannabis:
 
-<p align="center" width="100%"><img class="person" src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jardim_adamastor/2_luis_muskiado.png"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jardim_adamastor/2_tania_borboleta.png"></p>
+<p align="center" width="100%"><img class="person" src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jardim_adamastor/2_luis_muskiado.png"><img class="person" src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jardim_adamastor/2_tania_borboleta.png"></p>
+
+
+This group of individuals recruited the group above:
+
+<p align="center" width="100%"><img class="person" src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/musicians/1_andres_castro.png"><img class="person" src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jardim_adamastor/1_bicas.png"></p>
+
+
+This group of individuals is associated to the planners of these events:
 
 <p align="center" width="100%"><img class="person" src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/musicians/1_pedro_silva.png"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/musicians/2_jose_teixeira.png"></p>
 
