@@ -31,7 +31,7 @@ This group of individuals is associated to the group above:
 This group of individuals is associated to the planners of these repugnant events:
 
 
-<p align="center" width="100%"><img class="person" src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/musicians/1_pedro_silva.png"><img class="person" src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/musicians/2_jose_teixeira.png"></p>
+<p align="center" width="100%"><img class="person" src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/musicians/1_pedro_silva.png"><img class="person" src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jardim_adamastor/2_jose_teixeira.png"></p>
 
 
 Colegio Militar (largo da Luz, Lisbon, Portugal) alumni, and recruited criminal associates [^1], [^2], [^3], [^4], [^5] are on a crusade to divert attention from their wrong doing with a strategy of **"covering the world in shit"** and incarnate **colonialism time demons**, diverting attention from their abuses in 1993, spending their days abusing bio-photonics to force their victims to *"understand how things work"*, forcing them to feel **raped systematically since 2016** to simulate mental illness, whilst exacting cyber-torture extrajudicial trials and sentences for everything "in the book".
