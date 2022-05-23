@@ -1,64 +1,67 @@
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jesus/jesus_king.png"></p>
 
 
-I fled Portugal more than once to avoid these extrajudicial sentences of the CM-93 Colegio Militar alumni group (and recruited criminal associates) as an interactive extrajudicial trials and sentences cyber-torture spectacle of abusing a medium that could be used to deliver therapy like bio-photonics (**thermo-acoustics** and **photo-acoustics** instead of social media to issue tasks).
+I fled Portugal more than once to avoid these extrajudicial sentences of the CM-93 Colegio Militar alumni group (and recruited criminal associates) as an interactive extrajudicial trials and sentences cyber-torture interactive spectacle of abusing a medium that could be used to deliver therapy like bio-photonics (using **thermo-acoustics** and **photo-acoustics** instead of social media to issue tasks).
 
 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni_police/alumni_police.gif"></p>
 
 
-Both my **mother** and my **father** worked for **3 decades** as judicial clerks in various Portuguese courts of law, working often until midnight, to be used, at the end of their life, as targets against which to direct violence by individuals covering up for their crimes of child abuse as revenge for refusing to leave school in a game of transfer of guilt for their abuse, transfer of punishment, and transfer of responsibility.
+Both my **mother** and my **father** worked for **3 decades** as judicial clerks in various Portuguese courts of law, working often until midnight, to be used at the end of their life, as targets against which to direct violence by individuals covering up for their crimes of child abuse, as revenge for refusing to leave school in a game of transfer of guilt for their abuse, transfer of punishment, and transfer of responsibility.
 
 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/oscar_ferreira.png"></p>
 
 
-**Luis Nazareth Carvalho Figueira** and Colegio Militar alumni who graduated in 1993, and criminal associates linked to **Luis Muskiado**, **Jose Teixeira**, along with alumni from 1988 (my year) like **Joao Filipe Saraiva Pinheiro**, **Pedro Miguel de Brito Esteves Grilo @PSP**, **Oscar Ferreira**, **Tito Eurico Miranda Fernandes @PSP** trying to coerce me to accept living under torture with pharmacotherapy being forced upon me as a sentence to hide the procedure in case of rejection as a extrajudicial sentence for non-sense conversations so they can show me "what being a motherfucker is" as a moral lesson, and occult the child abuse crimes the CM-93 group committed against me, along with the prologued sexual abuse crimes the CM-93 group committed against me and my parents.
+**Luis Nazareth Carvalho Figueira** and Colegio Militar alumni who graduated in 1993, along with criminal associates linked to **Luis Muskiado**, **Jose Teixeira (bar Crew Hassan)**, along with alumni from 1988 (my year) like **Joao Filipe Saraiva Pinheiro**, **Pedro Miguel de Brito Esteves Grilo @PSP**, **Oscar Ferreira**, **Tito Eurico Miranda Fernandes @PSP** trying to coerce me to accept living under torture with pharmacotherapy being forced upon me as a sentence to hide the procedure in case of rejection as a extrajudicial sentence for non-sense conversations so they can show me "what being a motherfucker is" as a moral lesson, and occult the child abuse crimes the CM-93 group committed against me, along with the prologued sexual abuse crimes the CM-93 group committed against me and my parents.
 
 
 This group of individuals sits in a home all day articulating my tongue trying to force me to cut off my throat and mutilate my ears, head and genitalia whilst they smoke cannabis:
+
 
 <p align="center" width="100%"><img class="person" src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jardim_adamastor/2_luis_muskiado.png"><img class="person" src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jardim_adamastor/2_tania_borboleta.png"></p>
 
 
 This group of individuals is associated to the group above:
 
+
 <p align="center" width="100%"><img class="person" src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jardim_adamastor/1_andres_castro.png"><img class="person" src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jardim_adamastor/1_bicas.png"></p>
 
 
 This group of individuals is associated to the planners of these repugnant events:
 
-<p align="center" width="100%"><img class="person" src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/musicians/1_pedro_silva.png"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/musicians/2_jose_teixeira.png"></p>
+
+<p align="center" width="100%"><img class="person" src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/musicians/1_pedro_silva.png"><img class="person" src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/musicians/2_jose_teixeira.png"></p>
 
 
-Colegio Militar (largo da Luz, Lisbon, Portugal) alumni, and recruited criminal associates [^1], [^2], [^3], [^4], [^5] are on a crusade to divert attention from their wrong doing with a strategy of **"covering the world in shit"** and incarnate **colonialism time demons**, diverting attention from their abuses in 1993, spending their days abusing bio-photonics to force their victims to *"understand how things work"*, forcing them to feel **raped systematically since 2016** to simulate mental illness, whilst exacting cyber-torture trials and sentences for everything "in the book".
+Colegio Militar (largo da Luz, Lisbon, Portugal) alumni, and recruited criminal associates [^1], [^2], [^3], [^4], [^5] are on a crusade to divert attention from their wrong doing with a strategy of **"covering the world in shit"** and incarnate **colonialism time demons**, diverting attention from their abuses in 1993, spending their days abusing bio-photonics to force their victims to *"understand how things work"*, forcing them to feel **raped systematically since 2016** to simulate mental illness, whilst exacting cyber-torture extrajudicial trials and sentences for everything "in the book".
 
 
-**Tito Eurico Miranda Fernandes** (a confirmed catholic) went as far as sabotaging phone calls with my mother and even prayer on Christmas day, based on the saying **the deeper the grief, the closer to god**, followed by keeping me away from church by having me tortured genitally on multiple occasions (with a psychotic and demonic idiot forcing me to feel like he was **playing marbles with my testicles** during a service inside a church .
+**Tito Eurico Miranda Fernandes** (a confirmed catholic) went as far as sabotaging phone calls with my mother and even prayer on Christmas day, based on the saying **the deeper the grief, the closer to god**, followed by keeping me away from church by having me tortured genitally on multiple occasions (with a psychotic and demonic idiot forcing me to feel like he was **playing marbles with my testicles** during a service inside a church.
 
 
-**IT'S A DEMONIC RITUAL OF PLACING PSYCHIATRY ABOVE GOD AND DENYING NEURO-RIGHTS AND BIO-PHOTONICS TO US ALL TO FORCE CONVENTIONAL PHARMACO-THERAPY AND SATISFY PSYCHIATRIC AGENDAS FROM THE 80's AS SEEN IN DSM-V**
+**IT'S A DEMONIC RITUAL OF PLACING PSYCHIATRY ABOVE GOD AND DENYING NEURO-RIGHTS AND BIO-PHOTONICS TO US ALL TO FORCE CONVENTIONAL PHARMACO-THERAPY AND SATISFY PSYCHIATRIC AGENDAS FROM THE 80's AS SEEN IN [DSM-V CONTROVERSY](https://en.wikipedia.org/wiki/Diagnostic_and_Statistical_Manual_of_Mental_Disorders#Criticisms)**
 
 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jesus/stella_maris.png"></p>
 
 
-In order to force me to return to Portugal, against my will, to endure even harsher extrajudicial punishment, the CM-93 group became criminally associated with my former employer **Jasper Kums** and a Portuguese colleague at **Quby - Amsterdam** named **Goncalo Carvalho**, to pass me as an incompetent paranoid schizophrenic with synthetic tics and facial spasms, **as workplace revenge**. 
+In order to force me to return to Portugal against my will, to endure even harsher extrajudicial punishment, the CM-93 group became criminally associated with my former employer **Jasper Kums** and a Portuguese colleague at **Quby - Amsterdam** named **Goncalo Carvalho**, to pass me as an incompetent paranoid schizophrenic with synthetic tics and facial spasms, **as workplace revenge**. 
 
 
-Since 2016, these individuals wake me up daily in the middle of the night to simulate Van Gogh syndrome, taking turns at articulating my tongue and jaw to get me to talk to myself in public, **with one individual from the north of Portugal repeatedly attempting to get me to cut my own throat by articulating my tongue with the phrase "who did you mess with" and "don't get in our way", sometimes synthesized, others vocalized in the Portuguese language.** 
+Since 2016, criminal associates of these individuals wake me up daily in the middle of the night to simulate Van Gogh syndrome, taking turns at articulating my tongue and jaw to get me to talk to myself in public, **with one individual from the north of Portugal repeatedly attempting to get me to cut my own throat by articulating my tongue with the phrase "who did you mess with" and "don't get in our way", sometimes synthesized, others vocalized in the Portuguese language.** 
 
 
-Often I overheard them complaining about a Netherlands "police officer" with a name that sounds like "Fuller" acting like a real demonic idiot. I never met this Fuller or even know who he is...
+> Often I overheard them complaining about a Netherlands "police officer" with a name that sounds like "Fuller" acting like a real demonic idiot. I never met this Fuller or even know who he is...
 
 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/others/jasper_kums.png"></p>
 
 
-**Jasper Kums** (my former employer at Eenvoud Media - now renamed to Eenvoud Agency in Amsterdam as an attempt to divert attention from his criminal association to the individuals executing the **extrajudicial workplace revenge punishment**) and his criminal associates have **preferential treatment by Netherlands Law enforcement**, who seem more interested in doing the bidding of an individual who consumes cocaine at work and attempts to this day to pass me as a pedo in criminal association with the CM-93 group who abused me as a child, than doing anything about his many criminal associates who spend their days since 2016 sabotaging everything I do, all day long, trying to gamble self-harm, enforced every few seconds to give me an extrajudicial sentence of **synthetic tics** and **facial spasms** whilst **cyber-sodomizing** me, and **articulating my tongue** with the words **"psychiatrist"**, **"psychiatry"** and **"medication"** to coerce psychiatric care **as a humiliation**, trying to pass me as an **incompetent paranoid schizophrenic**, perpetuating human degradation **closed circuit interactive spectacles** and **social stratification** schemes.
+**Jasper Kums**, my former employer at Eenvoud Media (now renamed to Eenvoud Agency in Amsterdam as an attempt to divert attention from his criminal association to the individuals executing the **extrajudicial workplace revenge punishment**) along with his criminal associates, have **preferential treatment by Netherlands Law enforcement**, who seem more interested in doing the bidding of an individual who consumes cocaine at work and attempts to this day to pass me as a pedo in criminal association with the CM-93 group who abused me as a child and their recruited associates who spend their days since 2016 sabotaging everything I do, all day long, trying to gamble self-harm, enforced every few seconds to give me an extrajudicial sentence of **synthetic tics** and **facial spasms** whilst **cyber-sodomizing** me, and **articulating my tongue** with the words **"psychiatrist"**, **"psychiatry"** and **"medication"** to coerce psychiatric care **as a humiliation**, trying to pass me as an **incompetent paranoid schizophrenic**, perpetuating human degradation **closed circuit interactive spectacles** and **social stratification** schemes.
 
 
-The individuals recruited by the CM-93 group to exact the extrajudicial trials and sentences on behalf of Jasper Kums belong to several distinct but interconnected groups, and are amongst the most dangerous in Portugal connected to law enforcement, the justice system and enabled by elected government officials to do their bidding, filling the news with synthetic cases of domestic violence, violence directed to medical personnel!
+The individuals recruited by the CM-93 group to exact the extrajudicial trials and sentences on behalf of **Jasper Kums** belong to several distinct but interconnected groups, and are amongst **the most dangerous in Portugal connected to law enforcement, the justice system and enabled by elected government officials to do their bidding, filling the news with synthetic cases of domestic violence, violence directed to medical personnel!**
 
 
 * those linked to **Ivo Francisco**, **Luis Muskiado** and **Arthur Moreno**
@@ -74,7 +77,7 @@ The individuals recruited by the CM-93 group to exact the extrajudicial trials a
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/alumni.gif"></p>
 
 
-**These groups of individuals engage in a daily ritual of articulating my tongue with the words "psychiatrist", "psychiatry" and "medication"** while cyber-sodomizing me and torturing me genitally to create a piling psychological antagonistic effect and monger hatred, **increasing the odds of directed violence towards psychiatrists and medical staff in a clinical scenario.**
+**The daily ritual of articulating my tongue with the words "psychiatrist", "psychiatry" and "medication"** while cyber-sodomizing me and torturing me genitally is a protocol designed to create a piling psychological antagonistic effect and monger hatred, **significantly increasing the odds of directed violence towards psychiatrists and medical staff in a clinical scenario.**
 
 
 The criminal associates of **Jasper Kums** are also linked to Netherlands police (possibly relatives) and recruited criminal offenders [^2], [^3], [^4], [^5], [^6] **issuing and executing an illegal sentence of losing everything I have and roaming the streets asking for spare change**, along with an **extrajudicial sentence of simulated Van Gogh syndrome** (enforced by abusing bio-photonics to exact vibrotactile cyber-torture for denouncing them and running away to the Netherlands to escape their abuse) in an attempt to coerce me to return back to Portugal where they systematically direct violence towards my parents by inducing synthetic states of psychosis whenever I am near them.
@@ -83,7 +86,7 @@ The criminal associates of **Jasper Kums** are also linked to Netherlands police
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/others/anders_breivik.jpg"></p>
 
 
-They focus on inducing synthetic states of psychosis, gambling destruction of all private property on a daily basis for years, and directing violence towards others taking a special interest in women, parents and close relations, in a macabre psychiatric protocol of breaking one's psyche to pass their victims as being mentally ill and coerce them into **accepting** surviving under torture (a word I've been forced to hear daily for several years) psychiatric care against their will by exacting cyber-sodomy and vibrotactile cyber-torture to sabotage phone calls with relatives, social interactions with friends, wedding plans and intimate relations to pass me as an incapable and incompetent paranoid schizophrenic as **WORKPLACE REVENGE**.
+They focus on inducing synthetic states of psychosis, gambling destruction of all private property on a daily basis for 6 years, directing violence towards others (taking a special interest in women, parents and close relations) in a macabre psychiatric protocol of breaking one's psyche to pass their victims as being mentally ill, and coerce them into **accepting** surviving under torture (a word I've been forced to hear daily for several years) and psychiatric "care" against their will by exacting cyber-sodomy and vibrotactile cyber-torture to sabotage phone calls with relatives, social interactions with friends, wedding plans and intimate relations to pass me as an incapable and incompetent paranoid schizophrenic as **WORKPLACE REVENGE**.
 
 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jesus/cross.png"></p>
@@ -92,25 +95,25 @@ They focus on inducing synthetic states of psychosis, gambling destruction of al
 These individuals present themselves as **artists of human degradation**, **social stratification** and **self-inflicted harm**, with vibro-tactile and sonic payloads of **"kisses of death"** distorted, amplified and delivered to the brain mass of their victims, establishing simulated Van Gogh syndrome, synthetic pain, tongue and jaw articulation, cyber-sodomy, sexual sabotage in males (vibrotactile torture to induce forced contractions to the perineum) and sexual abuse in women (possibly resulting in Stockholm syndrome) as common in our society! 
 
 
-They entertain themselves attempting to nurture addiction with synthetic pain, establishing cyber-sodomy as standard extrajudicial sentences, to force the victim to seek relief and complete issued tasks by abusing the photo-acoustic and thermo-acoustic effects. Some are linked to Portuguese celebrities you may know:
+They entertain themselves attempting to nurture addiction with synthetic pain, establishing cyber-sodomy as standard extrajudicial sentences, to force the victim to seek relief and complete tasks issued by abusing the photo-acoustic and thermo-acoustic effects. Some are linked to Portuguese celebrities you may know:
 
 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/musicians/musicians.gif"></p>
 
 
-The CM-93 group and criminal associates are responsible for turning my father into a cripple in a tantrum of coercing psychiatric care that lasts since 1993. They go as far as simulating Van Gogh syndrome by throwing a ball at a wall and replicating the momentum transfer upon impact, by abusing bio-photonics to deliver the noxious payloads to the head of their victims, to simulate Van Gogh syndrome. 
+The CM-93 group and criminal associates are responsible for turning my father into a cripple in a tantrum of preying upon ignorance and confusion whilst drawing synthetic states of psychosis and articulating my tongue to coerce psychiatric care that lasts since 1993. They go as far as simulating Van Gogh syndrome by throwing a ball at a wall and replicating the momentum transfer upon impact, by abusing bio-photonics to deliver the noxious payloads to the head of their victims, to simulate Van Gogh syndrome. 
 
 
-This is combined with other phenomena in order to get me to talk to myself such as NFCC and echolalia and other methodologies that could be used in the field of **silent speech interfaces** to address speech impediments. Instead it is used to get people to talk to themselves as a humiliation protocol.
+This is combined with other phenomena in order to get me to talk to myself such as **NFCC** and **echolalia** and other methodologies that could be used in the field of **silent speech interfaces** to address speech impediments. Instead it is used to get people to talk to themselves as a humiliation protocol.
 
 
-This "blue whale suicide game" was forced upon me and my family by alumni of Colegio Militar and criminal associates in 1993, and it lasts to this day, trying to force me to return to Portugal, where they systematically direct violence to my parents as an extrajudicial sentence, stating they "failed to educate me" for calling school too much when I was a teenager, but reality is significantly different...
+This **"blue whale suicide game"** was forced upon me and my family by alumni of Colegio Militar and criminal associates in 1993, and it lasts to this day, trying to force me to return to Portugal, where they systematically direct violence to my parents as an extrajudicial sentence, stating they **"failed to educate me" for calling school too much when I was a teenager**, but reality is significantly different...
 
 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jesus/golgota.png"></p>
 
 
-The CM-93 group exacted Cybertorture by abusing biophotonics instead of social media or chat apps to bypass physical ban and issue tasks to be completed such as answering questions in catholic faith trials with the intent of passing me as a megalomaniac schizophrenic. The tasks varied from repeating phrases to others, answering questions and helping towards drafting legislation towards crime prevention by completing tasks preceded by lectures on the process of drafting and passing legislation. 
+The CM-93 group exacted Cybertorture by abusing bio-photonics instead of social media or chat apps to bypass physical ban and issue tasks to be completed such as answering questions in catholic faith trials with the intent of passing me as a megalomaniac schizophrenic, repeating phrases to others and helping towards drafting legislation towards crime prevention by completing tasks preceded by lectures on the process of drafting and passing legislation. 
 
 
 This was followed by attempting to sabotage my catholic confirmation rite, attacking my sexuality with GAYDAR tests, attempting to turn me against my family, the catholic church, and the police and attempting to pass me as a schizophrenic homophobe who did not know was bisexual as preparation for a long term sentence of simulated paranoid schizophrenia, after repeating in private a phrase my mother said about Paulo Portas to a colleague, leading to frustration and me choosing to study abroad to escape the abuse.
@@ -119,7 +122,7 @@ This was followed by attempting to sabotage my catholic confirmation rite, attac
 In the year 2001, with my University degree complete I returned to Portugal, in order to keep me and my parents quiet and force us into psychiatry, me and my parents were sexually harassed, cyber-sodomized and otherwise abused with cyber-torture in order to coerce us into silence and psychiatric submission. I was slandered as everything in the book (homophobia, xenophobia, misogyny) in order to divert attention to their wrong doings and recruit individuals to exact the extrajudicial trials and sentences on behalf of those who commit crimes of child abuse, stealing decades of my parents life, my life and putting in jeopardy the life of those around me, resulting in me escaping to the Netherlands on the 16/01/2013.
 
 
-After finding a job as a web developer, on my first day of work I noticed a "mental leash" was being placed on me by my employer **Jasper Kums** and my mental privacy was being once again violated. He offered me a salary of 300 euros as a humiliation (same amount my father used to help me) followed by a Portuguese women forcing me to hear her mocking payloads, hinting at rumours being spread and criminal association with the very same group of individuals who systematically abused me and my parents. We rarely disagreed, but tensions were systematically raised, with Jasper Kums typing terms I googled at home in front of me, as if insinuating he was connected to law enforcement and knew what I was doing at home. 
+After finding a job as a web developer, on my first day of work I noticed a "mental leash" was being placed on me by my employer **Jasper Kums** and my mental privacy was being once again violated. He offered me a salary of 300 euros as a humiliation (same amount my father used to help me with) followed by a Portuguese women forcing me to hear her mocking payloads, hinting at rumours being spread and criminal association with the very same group of individuals who systematically abused me and my parents. We rarely disagreed, but tensions were systematically raised, with Jasper Kums typing terms I googled at home in front of me, as if insinuating he was connected to law enforcement and knew what I was doing at home. 
 
 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/others/goncalo_carvalho.png"></p>
@@ -134,7 +137,7 @@ By the end of February 2016 I was once again being systematically abused via cyb
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jesus/jesus_lamb.png"></p>
 
 
-Since then, those criminally associated with Jasper Kums covering up for the criminal actions of the Colegio Militar child abusers from 1993 (CM-93) entered a new stage of attempting to force complete humiliation and psychiatric subjugation to psychiatry and forced pharmacotherapy with vibrotactile cyber-torture and sleep deprivation, to watch me break everything I own, force me into debt, make me lose my home, forcing me to roam around talking to myself since I am woken up, articulating my tongue whilst I drool in rage out of my mouth (to the point I got a tongue piercing to mitigate suffering without wanting one), in a ritualistic psychiatric protocol of creating a credible public image as a synthetic paranoid schizophrenic.
+Since then, those criminally associated with **Jasper Kums** covering up for the criminal actions of the Colegio Militar child abusers from 1993 (CM-93) entered a new stage of attempting to force complete humiliation and psychiatric subjugation to psychiatry and forced pharmacotherapy with vibrotactile cyber-torture and sleep deprivation, to watch me break everything I own, force me into debt, make me lose my home, forcing me to roam around talking to myself since I am woken up, articulating my tongue whilst I drool in rage out of my mouth (to the point I got a tongue piercing to mitigate suffering without wanting one), in a ritualistic psychiatric protocol of creating a credible public image as a synthetic paranoid schizophrenic.
 
 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jesus/adam_tree_of_life.png"></p>
@@ -161,16 +164,19 @@ Elected government officials have been denying neuro-rights to the population fo
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/narco_state.png"></p>
 
 
-* Narco-traffic of **class A** narcotics which you can find on public groups of chat applications like **"whatsapp"** and **"telegram"** without **police cyber units**, **whatsapp** or **telegram** taking any action. Given the self-assumed level of expertise of Jasper Kums in software development/IT and the nature of his privileged relationship with the police, it's surprising he prefers consuming class A narcotics in his work place to offering his expertise to the police towards automating a solution for such simple issues. There are hundreds if not thousands of repositories on Github with ready made example software bots for both platforms in various software languages, ready to be used. Maybe Netherlands Law enforcement is in need of a scrum master to help them get rid of a problem as simple as **eradicating** class A narco-traffic on social media and chat applications ? 
+* Narco-traffic of **class A** narcotics which you can find on public groups of chat applications like **"whatsapp"** and **"telegram"** without **police cyber units**, **whatsapp** or **telegram** taking any action. 
+
+
+Given the self-assumed level of expertise of Jasper Kums in software development/IT and the nature of his privileged relationship with the police, it's surprising he prefers consuming class A narcotics in his work place to offering his expertise to the police towards automating a solution for such simple issues. **There are hundreds if not thousands of repositories on Github with ready made example software bots for both platforms in various software languages, ready to be used. Maybe Netherlands Law enforcement is in need of a scrum master to help them get rid of a problem as simple as **eradicating** **class A** narco-traffic on social media and chat applications ? 
 
 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jesus/jesus_bound.png"></p> 
 
 
-The CM-93 group spend their days in a room, trying to induce psychosis, targeting head and genitalia in an alternate fashion, every few seconds, repeating phrases to articulate my tongue and jaw (whilst individuals linked to **Jasper Kums**, **Nuno Correia (CEO of Merkkurio Digital)**, **Carla Maria Marinho Rodrigues**, **Goncalo Carvalho** and the resident at **Van Diemenkade 44, Amsterdam**, Sjoerd) amongst others linked to **Goncalo Bandeira Duarte**, **Arthur Moreno**, **Luis Muskiado** use a peer-pressure strategy to coerce psychiatric care, which equates to acting in criminal association with Jasper Kums and the CM-93 group who sexually abused me as a child).
+The CM-93 group spend their days in a room, trying to induce psychosis, targeting head and genitalia in an alternate fashion, every few seconds, repeating phrases to articulate my tongue and jaw (whilst individuals linked to **Jasper Kums**, **Nuno Correia (CEO of Merkkurio Digital)**, **Carla Maria Marinho Rodrigues**, **Goncalo Carvalho** and the resident at **Van Diemenkade 44, Amsterdam**, Sjoerd) amongst others linked to **Goncalo Bandeira Duarte**, **Arthur Moreno**, **Luis Muskiado** use a peer-pressure strategy to coerce psychiatric care, which equates to acting in criminal association with Jasper Kums and the CM-93 group).
 
 
-Some of these individuals linked to the CM-93 child abuse group like Jasper Kums engage in **"new-age orgies"** taking turns at articulating my tongue to gamble degolation and self-harm of head and genitalia, in alternate fashion, every few seconds by articulating my tongue with the phrase **"vai-te foder com esta conversa de merda"**, simulating Van Gogh syndrome as they if it was a normal social event to coerce psychiatric care.
+Some of these individuals linked to the CM-93 child abuse group like Jasper Kums engage in **"new-age orgies"** taking turns at articulating my tongue trying to gamble feelings of self-harm targetting head and genitalia, in alternate fashion, simulating Van Gogh syndrome, and a group of megalomaniacs (using an accent from the north of portugal) attempting every few seconds to get me to cut my own throat by articulating my tongue with a single phrase: **"vai-te foder com esta conversa de merda"** whilst simultaneously cordially greeting each others, as if a social gathering to fulfil this kind of protocol to coerce psychiatric care.
 
 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jesus/jesus_color.png"></p>
@@ -189,13 +195,10 @@ Other individuals were recruited by the CM-93 group at **Jardim Adamastor (next 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jesus/holy_spirit.png"></p>
 
 
-As workplace revenge Jasper Kums and the CM-93 group who sexually abused me as a child have been trying to portrait me as **violent against women**, **homophobic**, **xenophobic**, a **drug addict**, a **drug dealer**, a **rapist** and even a **pedo**, acting **in criminal association with Jasper Kums**, with extrajudicial sentences, all day, several times a minute (if not per second) since the summer of 2016, to pass me as an incompetent schizophrenic with **synthetic tics** and **simulated Van Gogh syndrome** as **workplace revenge**, **coerce psychiatric care against my will and force my return to Portugal and the loss of my home**.
+Several of the sadists recruited have fun forcing their victims to feel sexually abused and sodomized, providing rotten sonic and vibro-tactile payloads of **"kisses of death" to the head of their victims**, while trying to force their victims to **hurt themselves repeatedly in front of an audience**, like **poets of death and human degradation.**
 
 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jesus/monk.png"></p>
-
-
-Several of the sadists recruited have fun forcing their victims to feel sexually abused and sodomized, providing rotten sonic and vibro-tactile payloads of **"kisses of death" to the head of their victims**, while trying to force their victims to **hurt themselves repeatedly in front of an audience**, like **poets of death and human degradation.**
 
 
 These individuals were enabled to destroy life (even whole families if necessary as in my case) forcing their victims to feel sexually abused in order to coerce psychiatric submission with simulated Van Gogh syndrome syndrome, as a threat, while simultaneously generating human degradation content for an interactive closed circuit spectacle, encouraging participation, so that players take turns exacting extrajudicial sentences of cyber-torture, articulating tongues and providing vibro-tactile and synthetic pain to simulate psychosis and other forms of psychiatric illness.
@@ -210,13 +213,13 @@ Some individuals in the fields of **psychiatry**, **law enforcement** and **deci
 <p align="center" width="100%"><img alt="Bad" src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/movies/joker.gif"></p>
 
 
-**Instead of promoting neuro-rights, crime prevention or remote healthcare, they advocate social stratification via abuse of bio-photonics (which provides higher therapeutic value than conventional pharmaco-"therapy" and could completely eradicate narco-traffic) for the purpose of extrajudicial trials and sentences, stratifying society with extrajudicial sentences of cognitive impairment, synthetic tics and facial spasms, tongue articulation, synthetic hyper-hydrosis, synthetic pain and even simulated Van Gogh syndrome enforced with vibrotactile cyber-torture, in closed circuit human degradation interactive spectacles, where they justify the behaviour of the subjects under torture with forged diagnosis of mental illness and refusal to accept pharmaco-"therapy"...**
+**Instead of promoting neuro-rights, crime prevention or remote healthcare, they advocate social stratification via abuse of bio-photonics (which provides higher therapeutic value than conventional pharmaco-"therapy" and could completely eradicate narco-traffic) for the purpose of extrajudicial trials and sentences, stratifying society with synthetic cognitive impairment, synthetic tics and facial spasms, tongue articulation, synthetic hyper-hydrosis, synthetic pain and even simulated Van Gogh syndrome enforced with vibrotactile cyber-torture, in closed circuit human degradation interactive spectacles, where they justify the behaviour of the subjects under torture with forged diagnosis of mental illness and refusal to accept pharmaco-"therapy"...**
 
 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/others/arkin.png"></p>
 
 
-Instead of denouncing these individuals, **Emile Barkhof** has systematically attempted to cover-up the extrajudicial cyber-torture extrajudicial sentences to coerce psychiatric care under the pretext of me being unable to work. Inadvertedly or not that aligns with the CM-93 child abuse group to divert attention from their abuse and perpetuate human degradation psychiatric spectacles trying to force me into psychiatry and forced pharmaco-"therapy" at any cost to **pass me as a incompetent schizophrenic** and **make an example out of me**.
+Instead of denouncing these individuals, **Emile Barkhof** has systematically attempted to cover-up the extrajudicial cyber-torture extrajudicial sentences to coerce psychiatric care under the pretext of me being unable to work. Inadvertedly or not that aligns with the CM-93 child abuse group to divert attention from their wrongdoings and perpetuate human degradation psychiatric spectacles trying to force me into psychiatry and forced pharmaco-"therapy" at any cost to **pass me as a incompetent schizophrenic** and **make an example out of me**.
 
 
 Sadly Emile has **presented false testimony in a court of law**, used **falsified reports of risk to self** and **refusal to accept judicial sentences of conventional pharmaco-"therapy" against my will**, as justifications for the damages inflicted by the group of individuals linked to the CM-93 group recruited to exact the extrajudicial cyber-torture sentences, **sabotaging my ex-girlfriends plans to get wed**, in a **ritualistic psychiatric humiliation tantrum** of **articulating my tongue**, **sabotaging intercourse**, directing violence towards women and my parents and getting me to hit myself in public and in front of my sweetheart during Christmas.
@@ -228,20 +231,14 @@ Sadly Emile has **presented false testimony in a court of law**, used **falsifie
 **Emile Barkhof visited the location where this group of individuals linked to the CM-93 group exact their extrajudicial cybertorture sentences along with elected government officials who watch the human degradation spectacle)**. Instead of denouncing it on the news, or reporting it to the police, he watched the macabre spectacle as a **"casa dos degredos"** blue-whale *style* suicide game similar to Matthew Puncher's soviet-style murder, where I am issued tasks such as **"breaking my phone, my laptop and mutilating my penis"** in the Portuguese language, and forced to pick between:
 
 
-* returning to portugal being cybersodomized and genitally abused with my tongue being articulated in portuguese, where colegio militar alumni linked to pedro miguel de brito esteves grilo @psp induce psychosis in the physical vicinity of my parents to coerce me into psychiatric care as a humiliation, directing violence to my parents all day to gamble futures of suicide, homicide, incarceration of forced psychiatric care.
+* returning to portugal being cybersodomized and genitally abused with my tongue being articulated in portuguese, where colegio militar alumni linked to pedro miguel de brito esteves grilo @psp induce psychosis in the physical vicinity of my parents to coerce me into psychiatric care as a humiliation, directing violence to my parents all day to gamble futures of: suicide, homicide, incarceration of forced psychiatric care.
 
-* staying in the netherlands and being forced into a psychiatric asylum under "assisted living" after losing my home with Eefje Suk, Emile Barkhof and Sara Hoff presenting falsified opinions in a court of law of rejection of pharmaco-"therapy" and "risk-to-self" to coerce psychiatric care and forced pharmacotherapy against my will instead of denouncing the individuals above along with their location.
+* staying in the netherlands and being forced into a psychiatric asylum under "assisted living" after losing my home with Eefje Suk, Emile Barkhof and Sara Hoff presenting falsified opinions in a court of law of rejection of pharmaco-"therapy" and "risk-to-self" to coerce psychiatric care and forced pharmacotherapy against my will, instead of denouncing the individuals above along with their location.
 
 * being forced into a jail cell and losing my home and my freedom whilst being abused to induce psychosis with people around me being used as targets of directed violence.
 
 
 <p align="center" width="100%"><img alt="Good" src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/movies/mission.gif"></p>
-
-
-Cyber-torture extrajudicial proceedings are hidden with falsified psychiatric diagnosis diagnosis, forced pharmaco-"therapy" against the will of the recipient (in the form of forced conventional pharmaco-"therapy", with high risk of suicide) and piling psychological effects such as **articulating the tongue of the subject under torture with the words "psychiatrist", "psychiatry" and "medication", to draw antagonism towards psychiatry, pharmaco-"therapy" and medical staff and increase the odds of foul play, or me being forced to flee the Netherlands against my will.**
-
-
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/psychiatrists/psychiatrists.gif"></p>
 
  
 The field of bio-photonics could provide much higher therapeutic value than conventional pharmaco-"therapy" solutions, solving problems not only in the field of psychiatry, but in the field of medicine and interpersonal relations that are next to impossible to address with conventional solutions. Instead, feelings of paranoia are being raised towards bio-photonics, remote healthcare, neural engineering and bioelectric medicine (where the risk of suicide would be insignificant in comparison to conventional pharmaco-"therapy"). 
@@ -259,6 +256,9 @@ The field of bio-photonics could provide much higher therapeutic value than conv
 **It's imperative to get rid this kind of "preferential treatment" mentality, not only out of the Netherlands Police force or Arkin FACT in the Netherlands, or even the field of psychiatry, but out of law enforcement and the field of medicine worldwide, where this kind of social stratification behaviour is pervasive**. psychiatrists and medical doctors who cover up this kind of obscene *workplace revenge* extrajudicial sentences with falsified diagnosis and forged assessments of "risk to self" using rejection of pharmaco-"therapy" as an excuse to justify the psychotic behaviour of the subjects under torture.
 
 
+<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/psychiatrists/psychiatrists.gif"></p>
+
+
 Psychotic individuals who participate in setting this kind of repugnant behaviour as a standard subjugation protocol in our society (where so many people are abused in such a foul way, with their life and those close to them becoming an object of gambling, either by covering up the procedure with falsified diagnosis, opinions, reports or by actually participating in the process of delivering noxious payloads to torture victims) are not medical doctors, and as such have no place in the fields of psychiatry or medicine.
 
 
@@ -268,7 +268,7 @@ Hiding cyber-torture extrajudicial trials and sentences and resorting to peer pr
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/books/books.gif"></p>
 
 
-Governments worldwide (except for Chile) have been denying us neuro-rights for decades, while a synthetic hell has been created as a **demonic psychiatric circus**, where life is gambled by inducing psychotic states and psychotic behaviour in an interactive spectacle where the participants have fun gambling with the life of their victims, the victims family members and those in their physical vicinity by combining various types of noxious payloads which they force upon their victims in order to **"burst a synthetic psychosis bubble"** with possible outcomes of being forced into psychiatric care, a prison cell, a grave or becoming homeless in **necro-politics** games which destroy not only families, but whole nations and inspire so much confusion, hatred and anger amongst the world population. **Denying neuro-rights to the population is high-treason.**
+Governments worldwide (except for Chile) have been denying us neuro-rights for decades, while a synthetic hell has been created as a **demonic psychiatric circus**, where life is gambled by inducing psychotic states and psychotic behaviour in an interactive spectacle where the participants have fun gambling with the life of their victims, the victims family members and those in their physical vicinity by combining various types of noxious payloads which they force upon their victims in order to **"burst a synthetic psychosis bubble"** with possible outcomes of being forced into psychiatric care, a prison cell, a grave or becoming homeless in **necro-politics** games which destroy not only families, but whole nations and inspire so much confusion, hatred and anger amongst the world population.
 
 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/politicians/politicians.gif"></p>
@@ -279,6 +279,8 @@ Until neuro-rights legislation is approved, it is likely to continue seeing more
 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jesus/rafael.png"></p>
 
+
+**Denying neuro-rights to the population is high-treason.**
 
 * say yes to neuro-rights
 * say no to the "homo sovieticus" initiative of Jasper Kums and Colegio Militar alumni to pair cybertorure with blue whale suicide games covered with psychiatric fraud
