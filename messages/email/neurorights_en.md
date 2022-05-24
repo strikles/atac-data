@@ -1,7 +1,7 @@
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jesus/jesus_king.png"></p>
 
 
-I fled Portugal more than once to avoid extrajudicial sentences of the Colegio Militar CM-93 alumni group who abused me as a child in 1993 and my parents after I left in 1996 to have my previous employer, the infamous **dutch coward Jasper Kums**, remotely exacting extrajudicial sentences, acting in criminal association with the very same group, trying to make me lose my home, turn me homeless, insinuate himself as master of my love life and sexual relationships sabotaging intercourse with a renal patient systematically to coerce pharmacotherapy as **workplace revenge**
+I fled Portugal more than once to avoid extrajudicial sentences of the Colegio Militar CM-93 alumni group who abused me as a child in 1993 and my parents after I left in 1996 to have my previous employer, the infamous **dutch coward Jasper Kums**, remotely exacting extrajudicial sentences, acting in criminal association with the very same group, trying to make me lose my home, turn me homeless, cut off my ears and mutilate my genitalia, insinuating himself as master of my love life and sexual relationships and sabotaging my intercourse with a renal patient systematically along with our wedding plans, to coerce psychiatric care and pharmacotherapy as **workplace revenge** in criminal association with his criminal associates in law enforcement.
 
 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/others/jasper_kums.png"></p>
