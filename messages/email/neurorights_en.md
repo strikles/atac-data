@@ -1,10 +1,16 @@
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jesus/jesus_king.png"></p>
 
 
-I fled Portugal more than once to avoid extrajudicial sentences of the Colegio Militar CM-93 alumni group who abused me as a child in 1993 and my parents after I left in 1996 to have my previous employer, the infamous **dutch coward Jasper Kums**, remotely exacting extrajudicial sentences, acting in criminal association with the very same group, trying to make me lose my home, turn me homeless and even defecate myself in the middle of the street on a regular basis to coerce psychiatric care and forced pharmaco-"therapy" by exacting **vibrotactile cybertorture** to simulate **Van Gogh syndrome** alternating between head and genitalia daily since I'm woken up in the middle of the night, in a tantrum of sabotaging intercourse, directing violence to people around me and sabotaging my wedding to coerce either returning back to Portugal without money, being cyber-sodomized and having my tongue articulated to endure an even harsher extrajudicial punishment with violence being directed to my parents to gamble incarceration, living under assisted care in a psychiatric asylum or committing acts of self-harm via abuse of bio-photonics as **workplace revenge**. 
+I fled Portugal more than once to avoid extrajudicial sentences of the Colegio Militar CM-93 alumni group who abused me as a child in 1993 and my parents after I left in 1996 to have my previous employer, the infamous **dutch coward Jasper Kums**, remotely exacting extrajudicial sentences, acting in criminal association with the very same group, trying to make me lose my home, turn me homeless, insinuate himself as master of my love life and sexual relationships sabotaging intercourse with a renal patient systematically to coerce pharmacotherapy as **workplace revenge**
 
 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/others/jasper_kums.png"></p>
+
+
+The creep even engages in rituals of making people defecate themselves in the middle of the street on a regular basis to coerce psychiatric care by exacting **vibrotactile cybertorture** to simulate **Van Gogh syndrome** alternating between head and genitalia daily since I'm woken up in the middle of the night, in a tantrum of sabotaging intercourse, directing violence to people around me and sabotaging my wedding to coerce either returning back to Portugal without money, being cyber-sodomized and having my tongue articulated to endure an even harsher extrajudicial punishment with violence being directed to my parents to gamble incarceration, living under assisted care in a psychiatric asylum or committing acts of self-harm via abuse of bio-photonics to exact cyber-torture.
+
+
+
 
 
 Both my **mother** and my **father** worked for **3 decades** as judicial clerks in various Portuguese courts of law, working often until midnight, to be used at the end of their life, as targets against which to direct violence by individuals who aligned their interest, some covering up for their crimes of child abuse, others as workplace revenge, others under the pretences of making the school look bad or as revenge for refusing to leave school in a game of transfer of guilt, transfer of punishment, and transfer of responsibility.
