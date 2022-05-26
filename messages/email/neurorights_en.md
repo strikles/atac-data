@@ -1,16 +1,21 @@
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jesus/jesus_king.png"></p>
 
 
-I fled Portugal more than once to avoid extrajudicial sentences of the Colegio Militar CM-93 alumni group who abused me as a child in 1993 and my parents after I left in 1996 to have my previous employer, the infamous **dutch coward Jasper Kums**, remotely exacting extrajudicial sentences, acting in criminal association with the very same group, trying to make me lose my home, turn me homeless, cut off my ears and mutilate my genitalia, insinuating himself as master of my love life and sexual relationships and sabotaging my intercourse with a renal patient systematically along with our wedding plans, to coerce psychiatric care and pharmaco-"therapy" as **workplace revenge** in criminal association with his criminal associates in law enforcement.
+I fled Portugal more than once to avoid extrajudicial sentences of the Colegio Militar CM-93 alumni group who gave the school a reputation of being a **"pedo school"** by hiding my case of child abuse in 1993 (after so many other cases), followed by the systematic abuse of my parents after I left in 1996 (including intercourse sabotage to silence us and coerce psychiatric care), to come to the Netherlands and have my previous employer, the **infamous dutch coward Jasper Kums**, participating in extrajudicial cyber-torture proceedings exacted via abuse of bio-photonics, as **workplace revenge** to pass me as a work incompetent schizophrenic and coerce choice between:
+
+
+1. Being forced to leave the Netherlands by systematically being incapacitated to work, so I am unable to repay the pile of debt forced upon me over the course of 6 years of being incapacitated to work, to at the very end sabotage a simple project all day exacting vibrotactile torture to simulate Van Gogh syndrome and articulating my tongue to make sure I can't earn any money, ging Portuguese immigrants a bad reputation as being untrustworthy and Portuguese Government a bad reputation, not only in the Netherlands, but worldwide.
+
+2. Being forced into assisted living psychiatric care and forced pharmaco-"therapy" against my will in violation of my human rights, combined with articulating my tongue whilst forcing me to hear the words "psychiatrist", "psychiatry" and "medication" over the course of months to guarantee antagonism and rejection which can be used as a justification for the synthetic states of psychosis systematically induced by the group in the physical vicinity of medical personnel.
+
+
+The extrajudicial cyber-torture proceedings spectacle of sabotaging work, trying to make me lose my home, turn me homeless whilst simulating Van Gogh syndrome and having those recruited to exact extrajudicial sentences, insinuating themselves as masters of the degradation forced upon my social and family relations and my love life, using women as targets of directed violence by inducing synthetic states of psychosis in their physical vicinity to sabotage intercourse along with our wedding plans **whilst demanding tears**.
 
 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/others/jasper_kums.png"></p>
 
 
-The creep even engages in rituals of making people defecate themselves in the middle of the street on a regular basis to coerce psychiatric care by exacting **vibrotactile cybertorture** to simulate **Van Gogh syndrome** alternating between head and genitalia daily since I'm woken up in the middle of the night, in a tantrum of sabotaging intercourse, directing violence to people around me and sabotaging my wedding to coerce either returning back to Portugal without money, being cyber-sodomized and having my tongue articulated to endure an even harsher extrajudicial punishment with violence being directed to my parents to gamble incarceration, living under assisted care in a psychiatric asylum or committing acts of self-harm via abuse of bio-photonics to exact cyber-torture.
-
-
-
+The creeps engage in rituals of making people defecate themselves in the middle of the street on a regular basis. They wake me up by exacting **vibrotactile cybertorture** to simulate **Van Gogh syndrome** alternating between head and genitalia daily since I'm woken up in the middle of the night, in a tantrum of forcing me to feel cyber-sodomized and having my tongue articulated gambling my return to Portugal where I would endure an even harsher extrajudicial punishment with violence being directed to my parents to gamble: incarceration, living under assisted care in a psychiatric asylum or committing acts of self-harm.
 
 
 Both my **mother** and my **father** worked for **3 decades** as judicial clerks in various Portuguese courts of law, working often until midnight, to be used at the end of their life, as targets against which to direct violence by individuals who aligned their interest, some covering up for their crimes of child abuse, others as workplace revenge, others under the pretences of making the school look bad or as revenge for refusing to leave school in a game of transfer of guilt, transfer of punishment, and transfer of responsibility.
@@ -19,7 +24,7 @@ Both my **mother** and my **father** worked for **3 decades** as judicial clerks
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni_police/alumni_police.gif"></p>
 
 
-**Luis Nazareth Carvalho Figueira** and Colegio Militar alumni who graduated in 1993, along with criminal associates linked to **Luis Muskiado**, **Jose Teixeira (bar Crew Hassan)**, along with alumni from 1988 (my year) like **Joao Filipe Saraiva Pinheiro**, **Pedro Miguel de Brito Esteves Grilo @PSP**, **Oscar Ferreira**, **Tito Eurico Miranda Fernandes @PSP** trying to coerce me to accept living under torture with pharmacotherapy being forced upon me as a sentence to hide the procedure in case of rejection as a extrajudicial sentence for non-sense conversations so they can show me "what being a motherfucker is" as a moral lesson, and occult the child abuse crimes the CM-93 group committed against me, along with the prologued sexual abuse crimes the CM-93 group committed against me and my parents.
+**Luis Nazareth Carvalho Figueira** and Colegio Militar alumni who graduated in 1993, along with criminal associates linked to **Luis Muskiado**, **Jose Teixeira (bar Crew Hassan)**, along with alumni from 1988 (my year) like **Joao Filipe Saraiva Pinheiro**, **Pedro Miguel de Brito Esteves Grilo @PSP**, **Oscar Ferreira**, **Tito Eurico Miranda Fernandes @PSP** trying to coerce me to accept living under torture with pharmaco-"therapy" being forced upon me as a sentence to hide the procedure in case of rejection as a extrajudicial sentence for non-sense conversations so they can show me "what being a motherfucker is" as a moral lesson, and occult the child abuse crimes the CM-93 group committed against me, along with the prologued sexual abuse crimes the CM-93 group committed against me and my parents.
 
 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/oscar_ferreira.png"></p>
@@ -55,10 +60,10 @@ Recruited Colegio Militar (largo da Luz, Lisbon, Portugal) alumni, and criminal 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jesus/stella_maris.png"></p>
 
 
-In order to force me to return to Portugal against my will, to endure even harsher extrajudicial punishment, the CM-93 group became criminally associated with my former employer **Jasper Kums** and a Portuguese colleague at **Quby - Amsterdam** named **Goncalo Carvalho**, to pass me as an incompetent paranoid schizophrenic with synthetic tics and facial spasms, **as workplace revenge**. 
+In order to force me to return to Portugal against my will, to endure even harsher extrajudicial punishment, the CM-93 group became criminally associated with my former employer **Jasper Kums** and a Portuguese colleague at **Quby - Amsterdam** named **Goncalo Carvalho**, to pass me as an incompetent paranoid schizophrenic with synthetic tics and facial spasms, **as workplace revenge**.
 
 
-Since 2016, criminal associates of these individuals wake me up daily in the middle of the night to simulate **Van Gogh syndrome**, taking turns at articulating my tongue and jaw to get me to talk to myself in public, **with one individual from the north of Portugal repeatedly attempting to get me to cut my own throat by articulating my tongue with the phrase "who did you mess with" and "don't get in our way", sometimes synthesized, others vocalized in the Portuguese language.** 
+Since 2016, criminal associates of these individuals wake me up daily in the middle of the night to simulate **Van Gogh syndrome**, taking turns at articulating my tongue and jaw to get me to talk to myself in public, **with one individual from the north of Portugal repeatedly attempting to get me to cut my own throat by articulating my tongue with the phrase "who did you mess with" and "don't get in our way", sometimes synthesized, others vocalized in the Portuguese language.**
 
 
 > Often I overheard them complaining about a Netherlands "police officer" with a name that sounds like "Fuller" acting like a real demonic idiot. I never met this Fuller or even know who he is...
@@ -98,7 +103,7 @@ Their extrajudicial proceedings are delusional and they behave as if they believ
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jesus/cross.png"></p>
 
 
-These individuals present themselves as **artists of human degradation**, **social stratification** and **self-inflicted harm**, with vibro-tactile and sonic payloads of **"kisses of death"** distorted, amplified and delivered to the brain mass of their victims, establishing simulated **Van Gogh syndrome**, synthetic pain, tongue and jaw articulation, cyber-sodomy, sexual sabotage in males (vibro-tactile torture to induce forced contractions to the perineum) and sexual abuse in women (possibly resulting in Stockholm syndrome) as common in our society! 
+These individuals present themselves as **artists of human degradation**, **social stratification** and **self-inflicted harm**, with vibro-tactile and sonic payloads of **"kisses of death"** distorted, amplified and delivered to the brain mass of their victims, establishing simulated **Van Gogh syndrome**, synthetic pain, tongue and jaw articulation, cyber-sodomy, sexual sabotage in males (vibro-tactile torture to induce forced contractions to the perineum) and sexual abuse in women (possibly resulting in Stockholm syndrome) as common in our society!
 
 
 They entertain themselves attempting to nurture addiction with synthetic pain, establishing cyber-sodomy as standard extrajudicial sentences, to force the victim to seek relief and complete tasks issued by abusing the photo-acoustic and thermo-acoustic effects. Some are linked to Portuguese celebrities you may know:
@@ -119,7 +124,7 @@ This **"blue whale suicide game"** was forced upon me and my family by alumni of
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jesus/golgota.png"></p>
 
 
-The CM-93 group exacted Cybertorture by abusing bio-photonics instead of social media or chat apps to bypass physical ban and issue tasks to be completed such as answering questions in catholic faith trials with the intent of passing me as a megalomaniac schizophrenic, repeating phrases to others and helping towards drafting legislation towards crime prevention by completing tasks preceded by lectures on the process of drafting and passing legislation. 
+The CM-93 group exacted Cybertorture by abusing bio-photonics instead of social media or chat apps to bypass physical ban and issue tasks to be completed such as answering questions in catholic faith trials with the intent of passing me as a megalomaniac schizophrenic, repeating phrases to others and helping towards drafting legislation towards crime prevention by completing tasks preceded by lectures on the process of drafting and passing legislation.
 
 
 This was followed by attempting to sabotage my catholic confirmation rite, attacking my sexuality with GAYDAR tests, attempting to turn me against my family, the catholic church, and the police and attempting to pass me as a schizophrenic homophobe who did not know was bisexual as preparation for a long term sentence of simulated paranoid schizophrenia, after repeating in private a phrase my mother said about Paulo Portas to a colleague, leading to frustration and me choosing to study abroad to escape the abuse.
@@ -173,13 +178,13 @@ Elected government officials have been denying neuro-rights to the population fo
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/narco_state.png"></p>
 
 
-* Narco-traffic of **class A** narcotics which you can find on public groups of chat applications like **"whatsapp"** and **"telegram"** without **police cyber units**, **whatsapp** or **telegram** taking any action. 
+* Narco-traffic of **class A** narcotics which you can find on public groups of chat applications like **"whatsapp"** and **"telegram"** without **police cyber units**, **whatsapp** or **telegram** taking any action.
 
 
 Given the self-assumed level of expertise of Jasper Kums in software development/IT and the nature of his privileged relationship with the police, it's surprising he prefers consuming class A narcotics in his work place to offering his expertise to the police towards automating a solution for such simple issues. There are hundreds if not thousands of repositories on Github with ready made example software bots for both platforms in various software languages, ready to be used. Maybe Netherlands Law enforcement is in need of a scrum master to help them get rid of a problem as simple as **eradicating class A narco-traffic on social media and chat applications ?**
 
 
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jesus/jesus_bound.png"></p> 
+<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jesus/jesus_bound.png"></p>
 
 
 The CM-93 group spend their days in a room, trying to induce psychosis, targeting head and genitalia in an alternate fashion, every few seconds, repeating phrases to articulate my tongue and jaw (whilst individuals linked to **Jasper Kums**, **Nuno Correia (CEO of Merkkurio Digital)**, **Rui Pedro Montoya**, **Carla Maria Marinho Rodrigues**, **Goncalo Carvalho** and the resident at **Van Diemenkade 44, Amsterdam**, Sjoerd) amongst others linked to **Goncalo Bandeira Duarte**, **Arthur Moreno**, **Luis Muskiado** use a peer-pressure strategy to coerce psychiatric care, which equates to acting in criminal association with Jasper Kums and the CM-93 group).
@@ -197,7 +202,7 @@ Other individuals were recruited by the CM-93 group at **Jardim Adamastor (next 
 * "Desisto"
 * "Estás a ver o que a casa gasta"
 * "Não gostamos dele"
-* "Vai-te foder com essa conversa de merda" 
+* "Vai-te foder com essa conversa de merda"
 * "Nao te metas no nosso caminho" (meaning don't get in or way - subjugating whole families to fascism and psychiatric abuse - denying neurorights to the world population in a manner so putrid and repugnant the individual uttering those words sounds like a stool making an advert to toilet cleaning products like Harpic or WC Pato).
 
 
@@ -249,8 +254,8 @@ Sadly Emile has **presented false testimony in a court of law**, used **falsifie
 
 <p align="center" width="100%"><img alt="Good" src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/movies/mission.gif"></p>
 
- 
-The field of bio-photonics could provide much higher therapeutic value than conventional pharmaco-"therapy" solutions, solving problems not only in the field of psychiatry, but in the field of medicine and interpersonal relations that are next to impossible to address with conventional solutions. Instead, feelings of paranoia are being raised towards bio-photonics, remote healthcare, neural engineering and bioelectric medicine (where the risk of suicide would be insignificant in comparison to conventional pharmaco-"therapy"). 
+
+The field of bio-photonics could provide much higher therapeutic value than conventional pharmaco-"therapy" solutions, solving problems not only in the field of psychiatry, but in the field of medicine and interpersonal relations that are next to impossible to address with conventional solutions. Instead, feelings of paranoia are being raised towards bio-photonics, remote healthcare, neural engineering and bioelectric medicine (where the risk of suicide would be insignificant in comparison to conventional pharmaco-"therapy").
 
 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/psychiatrists/2_emile.png"></p>
@@ -331,7 +336,7 @@ Some details worthy of your attention:
 ### 1987:
 
 * Joao Filipe Saraiva Pinheiro
-* Ricardo Rebordão de Brito 
+* Ricardo Rebordão de Brito
 * Rui Goncalo Pires Pintado
 
 
@@ -340,7 +345,7 @@ Some details worthy of your attention:
 * rui ricardo borges marque sabino reino
 * tito eurico miranda fernandes
 * pedro de queiroz antão
-* ricardo carrilho 
+* ricardo carrilho
 * paulo jorge varanda
 * frederico ferronha
 * oscar ferreira
