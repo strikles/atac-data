@@ -36,8 +36,6 @@ Colegio Militar (largo da Luz, Portugal) have been educating social stratificati
 **Luis Nazareth Carvalho Figueira**, **Pedro Nuno da Silva Rocha**, **Tiago Goncalves - Aegis (son of Martiniano Nuno Goncalves)**, **Pedro Miguel de Brito Esteves Grilo @PSP**, **Joao Filipe Saraiva Pinheira**, **Pedro Miguel Reis - GNR**, **Ricardo Rebordao de Brito**, **Oscar Ferreira**, **Tito Eurico Miranda Fernandes @PSP** and those who graduated in 1993, along with criminal associates linked to **Luis Muskiado**, **Jose Teixeira (bar Crew Hassan)**, and criminal associates of **Tiago Jorge Roque and social circle** trying to coerce me to accept living under torture with pharmaco-"therapy" being forced upon me as a sentence to hide the procedure, in case of rejection.
 
 
-
-
 As a extrajudicial sentence for non-sense conversations so they can show me "what being a motherfucker is" as a moral lesson, and occult the child abuse crimes the CM-93 group committed against me, along with the prologued sexual abuse crimes against me and my parents.
 
 
