@@ -30,7 +30,7 @@ Both my **mother** and my **father** worked for **3 decades** as judicial clerks
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni_police/alumni_police.gif"></p>
 
 
-Colegio Militar (largo da Luz, Portugal) have been educating social stratification white trash appologists for 3 decades, systematically filling the news with synthetic cases of domestic violence towards elderly people, women and directing violence towards medical personnel entertaining themselves turning people psychotic and making people stab themselves as a interactive spectacle.
+Colegio Militar (largo da Luz, Portugal) have been educating social stratification white trash apologists for 3 decades, systematically filling the news with synthetic cases of domestic violence towards elderly people, women and directing violence towards medical personnel entertaining themselves turning people psychotic and making people stab themselves as a interactive spectacle.
 
 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/others/martiniano_nuno_goncalves.png"></p>
@@ -245,7 +245,7 @@ These individuals were enabled to destroy life (even whole families if necessary
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jesus/jesus_carrying_cross.png"></p>
 
 
-Some individuals in the fields of **psychiatry**, **law enforcement** and **decision-making** must have been watching the **wrong** movies, perpetuating an old psychiatric agenda from the 70's - 80's of turning people psychotic by exacting extrajudicial cyber-torture sentences, cyber-sodomizing and articulating the tongue of their victims with the words "psychiatrist", "psychiatry" and "medication" and justifying the psychotic behaviour on rejection of conventional pharmaco-"therapy" as a form of intimidation and subjugation of the population.
+Some individuals in the fields of **psychiatry**, **law enforcement** and **decision-making** must have been watching the **wrong** movies, perpetuating an old psychiatric agenda from the 70's - 80's of turning people psychotic by exacting extrajudicial cyber-torture sentences, cyber-sodomizing and articulating the tongue of their victims with the words **"psychiatrist"**, **"psychiatry"** and **"medication"** and justifying the psychotic behaviour on rejection of conventional pharmaco-"therapy" as a form of intimidation and subjugation of the population.
 
 
 <p align="center" width="100%"><img alt="Bad" src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/movies/joker.gif"></p>
