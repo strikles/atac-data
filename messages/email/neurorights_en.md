@@ -9,7 +9,7 @@ I fled Portugal more than once to avoid extrajudicial sentences of the Colegio M
 2. Being forced into assisted living psychiatric care and forced pharmaco-"therapy" against my will in violation of my human rights, combined with articulating my tongue whilst forcing me to hear the words "psychiatrist", "psychiatry" and "medication" over the course of months to guarantee antagonism and rejection which can be used as a justification for the synthetic states of psychosis systematically induced by the group in the physical vicinity of medical personnel.
 
 
-The extrajudicial cyber-torture proceedings spectacle of sabotaging work, trying to make me lose my home, turn me homeless whilst simulating Van Gogh syndrome and having those recruited to exact extrajudicial sentences, insinuating themselves as masters of the degradation forced upon my social and family relations and my love life, using women as targets of directed violence by inducing synthetic states of psychosis in their physical vicinity to sabotage intercourse along with our wedding plans **whilst demanding tears**.
+The extrajudicial cyber-torture proceedings spectacle of sabotaging work, trying to make me lose my home, turn me homeless whilst simulating **Van Gogh syndrome** and having those recruited to exact extrajudicial sentences, insinuating themselves as masters of the degradation forced upon my social and family relations and my love life, using women as targets of directed violence by inducing synthetic states of psychosis in their physical vicinity to sabotage intercourse along with our wedding plans **whilst demanding tears**.
 
 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/others/jasper_kums.png"></p>
@@ -28,6 +28,9 @@ Both my **mother** and my **father** worked for **3 decades** as judicial clerks
 
 
 Colegio Militar (largo da Luz, Portugal) have been educating social stratification white trash appologists for 3 decades, systematically filling the news with synthetic cases of domestic violence towards elderly people, women and directing violence towards medical personnel entertaining themselves turning people psychotic and making people stab themselves as a interactive spectacle.
+
+
+<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/others/martiniano_nuno_goncalves.png"></p>
 
 
 **Luis Nazareth Carvalho Figueira**, **Pedro Nuno da Silva Rocha**, **Tiago Goncalves - Aegis (son of Martiniano Nuno Goncalves)**, **Pedro Miguel de Brito Esteves Grilo @PSP**, **Joao Filipe Saraiva Pinheira**, **Pedro Miguel Reis - GNR**, **Ricardo Rebordao de Brito**, **Oscar Ferreira**, **Tito Eurico Miranda Fernandes @PSP** and those who graduated in 1993, along with criminal associates linked to **Luis Muskiado**, **Jose Teixeira (bar Crew Hassan)**, and criminal associates of **Tiago Jorge Roque and social circle** trying to coerce me to accept living under torture with pharmaco-"therapy" being forced upon me as a sentence to hide the procedure, in case of rejection.
@@ -97,7 +100,6 @@ The individuals recruited by the CM-93 group to exact the extrajudicial trials a
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/alumni.gif"></p>
 
 * medical doctors linked to **Frederico Ferronha (urologist)** with sentences of vibotactile genital torture and cybersodomy to simulate psychosis, Van Gogh syndrome and paranoid schizophrenia systematicaly forcing victims to want to stab themselves all over their body like Matthew Puncher and directing violence to elderly parents at the end of their life.
-
 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/ferronha.png"></p>
 
