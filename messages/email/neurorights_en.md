@@ -21,7 +21,7 @@ The extrajudicial cyber-torture proceedings spectacle of sabotaging work, trying
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/colegio.png"></p>
 
 
-Both my **mother** and my **father** worked for **3 decades** as judicial clerks in various Portuguese courts of law, working often until midnight, to be used at the end of their life, as targets against which to direct violence by individuals who aligned their interest, some covering up for their crimes of child abuse, others as workplace revenge, others under the pretences of making the school look bad or as revenge for refusing to leave school in a game of transfer of guilt, transfer of punishment, and transfer of responsibility.
+Both my **mother** and my **father** worked for **3 decades** as judicial clerks in various Portuguese courts of law, working often until midnight, to be used at the end of their life, as targets against which to direct violence by individuals who aligned their interest, some covering up for their crimes of child abuse, others as workplace revenge, others under the pretences of making the school look bad or as revenge for refusing to leave school in a game of **transfer of guilt, transfer of punishment, and transfer of responsibility.**
 
 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni_police/alumni_police.gif"></p>
@@ -34,6 +34,8 @@ Colegio Militar (largo da Luz, Portugal) have been educating social stratificati
 
 
 **Luis Nazareth Carvalho Figueira**, **Pedro Nuno da Silva Rocha**, **Tiago Goncalves - Aegis (son of Martiniano Nuno Goncalves)**, **Pedro Miguel de Brito Esteves Grilo @PSP**, **Joao Filipe Saraiva Pinheira**, **Pedro Miguel Reis - GNR**, **Ricardo Rebordao de Brito**, **Oscar Ferreira**, **Tito Eurico Miranda Fernandes @PSP** and those who graduated in 1993, along with criminal associates linked to **Luis Muskiado**, **Jose Teixeira (bar Crew Hassan)**, and criminal associates of **Tiago Jorge Roque and social circle** trying to coerce me to accept living under torture with pharmaco-"therapy" being forced upon me as a sentence to hide the procedure, in case of rejection.
+
+
 
 
 As a extrajudicial sentence for non-sense conversations so they can show me "what being a motherfucker is" as a moral lesson, and occult the child abuse crimes the CM-93 group committed against me, along with the prologued sexual abuse crimes against me and my parents.
@@ -90,6 +92,8 @@ The individuals recruited by the CM-93 group to exact the extrajudicial trials a
 * those linked to **Ivo Francisco**, **Luis Muskiado** and **Arthur Moreno**
 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/tapada_do_mocho/tapada_do_mocho.gif"></p>
+
+<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/tiago_jorge_roque.png"></p>
 
 * those linked to **Ivo Francisco**, **Tiago Santos Sousa** and **Pedro Caetano**
 
