@@ -242,7 +242,7 @@ These individuals were enabled to destroy life (even whole families if necessary
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jesus/jesus_carrying_cross.png"></p>
 
 
-Some individuals in the fields of **psychiatry**, **law enforcement** and **decision-making** must have been watching the **wrong** movies, perpetuating an old psychiatric agenda from the 80's...
+Some individuals in the fields of **psychiatry**, **law enforcement** and **decision-making** must have been watching the **wrong** movies, perpetuating an old psychiatric agenda from the 70's - 80's of turning people psychotic by exacting extrajudicial cyber-torture sentences, cyber-sodomizing and articulating the tongue of their victims with the words "psychiatrist", "psychiatry" and "medication" and justifying the psychotic behaviour on rejection of conventional pharmaco-"therapy" as a form of intimidation and subjugation of the population.
 
 
 <p align="center" width="100%"><img alt="Bad" src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/movies/joker.gif"></p>
