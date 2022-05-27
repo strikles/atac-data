@@ -1,7 +1,7 @@
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jesus/jesus_king.png"></p>
 
 
-I fled Portugal more than once to avoid extrajudicial sentences of the Colegio Militar CM-93 alumni group who gave the school a reputation of being a **"pedo school"** by hiding my case of child abuse in 1993 (after so many other cases), followed by the systematic abuse of my parents after I left in 1996 (including intercourse sabotage to silence us and coerce psychiatric care), to come to the Netherlands and have my previous employer, the **infamous dutch coward Jasper Kums**, participating in extrajudicial cyber-torture proceedings exacted via abuse of bio-photonics, as **workplace revenge** to pass me as a work incompetent schizophrenic and coerce choice between:
+I fled Portugal more than once to avoid extrajudicial sentences of the Colegio Militar CM-93 alumni group who gave the school a reputation of being a **"pedo school"** by hiding my case of child abuse in 1993 (after so many other cases), followed by the systematic abuse of my parents after I left in 1996 (including intercourse sabotage to silence us and coerce psychiatric care), to come to the Netherlands and have my previous employer, the **infamous dutch coward Jasper Kums**, participating in extrajudicial cyber-torture proceedings exacted via abuse of bio-photonics, as **workplace revenge** to pass me as a work incompetent schizophrenic, direct violence to my parents, sabotage my wedding and coerce choice between:
 
 
 1. Being forced to leave the Netherlands by systematically being incapacitated to work, so I am unable to repay the pile of debt forced upon me over the course of 6 years of being incapacitated to work, to at the very end sabotage a simple project all day exacting vibrotactile torture to simulate Van Gogh syndrome and articulating my tongue to make sure I can't earn any money, ging Portuguese immigrants a bad reputation as being untrustworthy and Portuguese Government a bad reputation, not only in the Netherlands, but worldwide.
@@ -15,7 +15,10 @@ The extrajudicial cyber-torture proceedings spectacle of sabotaging work, trying
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/others/jasper_kums.png"></p>
 
 
-The creeps engage in rituals of making people defecate themselves in the middle of the street on a regular basis. They wake me up by exacting **vibrotactile cybertorture** to simulate **Van Gogh syndrome** alternating between head and genitalia daily since I'm woken up in the middle of the night, in a tantrum of forcing me to feel cyber-sodomized and having my tongue articulated gambling my return to Portugal where I would endure an even harsher extrajudicial punishment with violence being directed to my parents to gamble: incarceration, living under assisted care in a psychiatric asylum or committing acts of self-harm.
+**The fascist creeps engage in rituals of making people defecate themselves in the middle of the street on a regular basis. They wake me up by exacting vibrotactile cybertorture to simulate Van Gogh syndrome alternating between head and genitalia daily since I'm woken up in the middle of the night, in a tantrum of forcing me to feel cyber-sodomized and having my tongue articulated gambling my return to Portugal where I would endure an even harsher extrajudicial punishment with violence being directed to my parents to gamble: incarceration, living under assisted care in a psychiatric asylum or committing acts of self-harm.**
+
+
+<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/colegio.png"></p>
 
 
 Both my **mother** and my **father** worked for **3 decades** as judicial clerks in various Portuguese courts of law, working often until midnight, to be used at the end of their life, as targets against which to direct violence by individuals who aligned their interest, some covering up for their crimes of child abuse, others as workplace revenge, others under the pretences of making the school look bad or as revenge for refusing to leave school in a game of transfer of guilt, transfer of punishment, and transfer of responsibility.
@@ -86,6 +89,10 @@ The individuals recruited by the CM-93 group to exact the extrajudicial trials a
 * those linked to **Ricardo Rebordão de Brito**, **Pedro Nuno da Silva Rocha** and **Eduardo Metzner**
 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/alumni.gif"></p>
+
+* medical doctors linked to **Frederico Ferronha (urologist)** with sentences of vibotactile genital torture and cybersodomy to simulate psychosis, Van Gogh syndrome and paranoid schizophrenia systematicaly forcing victims to want to stab themselves all over their body like Matthew Puncher and directing violence to elderly parents at the end of their life.
+
+<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/alumni/ferronha.png"></p>
 
 
 **The daily ritual of articulating my tongue with the words "psychiatrist", "psychiatry" and "medication"** while cyber-sodomizing me and torturing me genitally is a protocol designed to create a piling psychological antagonistic effect and monger hatred, **significantly increasing the odds of directed violence towards psychiatrists and medical staff in a clinical scenario.**
@@ -347,7 +354,7 @@ Some details worthy of your attention:
 * pedro de queiroz antão
 * ricardo carrilho
 * paulo jorge varanda
-* frederico ferronha
+* frederico ferronha (urologist)
 * oscar ferreira
 * frederico leitão
 * carlos anselmo simões
