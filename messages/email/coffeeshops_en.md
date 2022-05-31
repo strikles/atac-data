@@ -12,12 +12,12 @@ These individuals are extremely dangerous...
 
 They exact their extrajudicial sentences as interactive spectacles, recruiting people to do their bidding under the pretence of acting remotely to bypass physical ban, in rituals of articulating tongues in public places (taking a special interest in inducing synthetic states of psychosis inside coffeeshops, restaurants and in the presence of women and family members) and simulating **Van Gogh syndrome** multiple times per minute if not per second to guarantee self-harm or violence being directed to staff, forcing destruction of private property, systematically directing violence to others (including **elderly parents at the end of their life**, **women**, **children** and even handicapped people) to coerce psychiatric care or incarceration.
 
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/tapada_do_mocho/goncalo_duarte.png"></p>
+<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/tapada_do_mocho/1_goncalo_duarte.png"></p>
 
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/tapada_do_mocho/mazivo.png"></p>
+<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/tapada_do_mocho/4_ivo_francisco.png"></p>
 
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/tapada_do_mocho/tiago_roque.png"></p>
+<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/tapada_do_mocho/2_tiago_roque.png"></p>
 
-<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/tapada_do_mocho/joao_leiria.png"></p>
+<p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/tapada_do_mocho/3_joao_leiria.png"></p>
 
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jesus/mary.png"></p>
