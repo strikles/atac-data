@@ -1,7 +1,7 @@
 <p align="center" width="100%"><img src="https://raw.githubusercontent.com/strikles/atac-data/main/messages/assets/img/jesus/jesus_king.png"></p>
 
 
-Portuguese cowards linked to Portuguese Law enforcement and criminal associates in the the cannabis business in the Netherlands like **Tania Borboleta**, **Luis Muskiado** and criminal associates of **Ivo Francisco**, **Goncalo Bandeira Duarte**, **Tiago Jorge Roque** and **Joao Leiria** bring the cannabis business in the Netherlands a **bad name** by abusing **bio-photonics** to exact **cyber-torture** extrajudicial sentences to gamble incarceration, psychiatric care, suicide or roaming the streets as a homeless person with their tongue being articulated.
+Portuguese cowards linked to Portuguese Law enforcement and criminal associates in the cannabis business in the Netherlands like **Tania Borboleta**, **Luis Muskiado** and criminal associates of **Ivo Francisco**, **Goncalo Bandeira Duarte**, **Tiago Jorge Roque** and **Joao Leiria** bring the cannabis business in the Netherlands a **bad name** by abusing **bio-photonics** to exact **cyber-torture** extrajudicial sentences to gamble incarceration, psychiatric care, suicide or roaming the streets as a homeless person with their tongue being articulated.
 
 These individuals are extremely dangerous...
 
